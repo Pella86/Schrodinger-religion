@@ -29,7 +29,7 @@ progression that society, over recent times, has undergone.
 
 Modernized religions try to adapt to this new era by means of reinterpreting the same scripts,
 but by doing this they are committing a huge fallacy by reusing the old religious conception to try to fit them in the newer concepts.
-This is also the reason of the decay of faith in the new century. The new and wild reinterpretations create paradoxes
+This is also the reason of the decay of faith in the new century (Unproved statement). The new and wild reinterpretations create paradoxes
 and splits each religion into subgroups. Although they are updated continuously by the work of the religious leaders,
 this reinterpretation creates a fragmented ad hoc religion which doesn't reflect the original branch.
 This causes the identity of a religion to fragments in many subgroups.  Christianity is divided in three main groups:
@@ -63,6 +63,8 @@ However, in this religion those who may have completely refused the presence of 
 Schrödinger religion, will consider the hypothesis that atheism AND theism both exist at the same time.
 The existence of the presence of a god discussion is mathematically proven to be a non-answerable question,
 since neither side as far as of now can provide proof to the existence or the nonexistence. (source, Gödel and Sobel).
+*(Gödel and Aquin define the principle of faith in God but aren't proof of it. Sobel critizises those principles.*
+*Depending on the branch of philosophy there's ways to demontrate god presence. Just mathematics can't prove it.)*
 Although it is a human need to believe in a super being, an order of things, a god or gods so to speak.
 More than 80% of the population believes or is unsure about the presence of a god. [1]
 This reflects a basic human need to cope with the apparent void meaning of life. Now God, or a super natural being
