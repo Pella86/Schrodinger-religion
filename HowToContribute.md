@@ -15,7 +15,7 @@ If we both agree on the changes, then we can merge the two and unify it. Else th
 5. I update the master of my religion with your changes.
 6. If I won't accept your changes, don't worry your Schrodinger religion will live as a separate entitiy.
 
-# Practical consideration
+# Practical considerations
 
 ## Getting started
 https://guides.github.com/activities/hello-world/
