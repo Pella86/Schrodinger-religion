@@ -1,29 +1,47 @@
-#Medium
+# Medium
 Telegram chat
 
-##Spiritual Science [INT]
+## Chat data
+**Title:**
+Spiritual Science [INT]
+
+**Description:**
 Spirituality and Science are no longer separated ⚛️🕉️☯️
 Link to our channel: 
 https://telegram.me/spiritualscience
-##LINK
+
+**link to the chat:**
 https://telegram.me/spiritscience
 
-##Start when I joined the chat
+## Editing formalities
+- H1 (#)      Reserved for title
+- H2 (##)     Formal sections
+- H3 (###)    Chat arguments
+- H4 (####)   Summary breakpoints
+- H5
+- H6 (######) Big deletions
+
+## Start of chatlog
+
 ###### deleted a huge flame discussion about pming people.
 
-###### Non informal poll about believing in a deity.
+### Non informal poll about believing in a deity.
 
 Does a natural or supernatural being considered divine or sacred (God or deity) exist?
 
-Yes – 42
-I don't know – 20
-No – 16
-I don't care – 14
-It both exist AND doesn't exist – 12
-Others – 5
-👥 109 people voted so far.
+- Yes – 42
+- I don't know – 20
+- No – 16
+- I don't care – 14
+- It both exist AND doesn't exist – 12
+- Others – 5
 
-###### What is love?
+> 109 people voted so far.
+### Non informal poll about believing in a deity. /end
+#### Summary
+(under construction)
+
+### What is love?
 
 Milena, [18.10.16 12:25]
 I would like to ask you guys a question. What do you think about Love. How would you describe it? What is it in your opinion? What is love and what isn't and why? 
@@ -56,9 +74,12 @@ Imho
 And you can't love somebody who doesn't love you back
 That's not love
 
-###### What is love? /end
+### What is love? /end
 
-###### What is Ego?
+#### Summary:
+(under construction)
+
+### What is Ego?
 
 Pella Jiriya, [18.10.16 12:44]
 [Forwarded from Spiritual Science Channel [INT] (Milena)]
