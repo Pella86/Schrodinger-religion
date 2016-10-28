@@ -48,6 +48,13 @@ I want to create a dynamic sacred script that is modified with the discovery of 
 I don't want to completely refuse the old and sacred texts, because I'm sure they contain deep fundamentals of the human nature,
 but I want population contribution towards writing a text that is for humans, written by humans.
 
+To tell the truth: Well I'm not sure where this idea might bring
+I just shot the flat stone on the lake.
+But I don't know how many bounces it will make and if it even will reach the other side.
+What I would like to make is really a comprehensive social media mediated religion that will maybe and possibily find the communication with the existing branches of religions.
+Of course wants to bring in typical religion stuff, like rites and traditions, if they absorbed by the regional traditions or if they are completely invented from scratch we will see.
+For now I'd like opinions and contributions.
+
 ##Satanism and the new religion
 Something that will go toward LaVey said. Laveyian Satanism is an atheist religion, that promote the individualism
 and social Darwinism. [1] Although the idea of an atheist religion is very good, I don't find useful to completely refuse deities,
