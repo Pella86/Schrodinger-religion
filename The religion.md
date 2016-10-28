@@ -27,7 +27,7 @@ progression that society, over recent times, has undergone.
 [[3] wikipedia - Hindu scripts](https://en.wikipedia.org/wiki/Hindu_texts) /
 [[4] wikipedia - Buddhist scripts](https://en.wikipedia.org/wiki/Buddhism#Buddhist_texts)
 
-Modernized religions try to adapt to this new era by means of reinterpreting the same scripts,
+Modern religions try to adapt to this new era by means of reinterpreting the same scripts,
 but by doing this they are committing a huge fallacy by reusing the old religious conception to try to fit them in the newer concepts.
 This is also the reason of the decay of faith in the new century (Unproved statement). The new and wild reinterpretations create paradoxes
 and splits each religion into subgroups. Although they are updated continuously by the work of the religious leaders,
