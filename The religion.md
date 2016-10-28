@@ -1,19 +1,21 @@
-#The religion
+# The religion
 This file will contain the body of the religion itself. How it should be construtcted or how should be conceived.
 
-##What is a religion?
+## What is a religion?
 > "Religion is a cultural system of behaviors and practices, world views, sacred texts, holy places, ethics, and societal organization, 
 > that relates humanity to what an anthropologist would call "an order of existence"."
 > Wikipedia [1] 
 
+[[1] wikipedia Religion](https://en.wikipedia.org/wiki/Religion)
+
+## The purpose of the Schrodinger religion
 This religion is meant to be a way of achieving coexistence in the human species and to promote progress.
 We will later define what is meant by progress and coexistence in more detail, but both terms should be taken in the literal form.
-Progress[2]: Development towards an improved or more advanced condition.
-Coexistence[3]: he state or condition of living in harmony despite different ideologies or interests. 
+Progress[1]: Development towards an improved or more advanced condition.
+Coexistence[2]: he state or condition of living in harmony despite different ideologies or interests. 
 
-[[1] wikipedia Religion](https://en.wikipedia.org/wiki/Religion) / 
-[[2] Oxford dictionray Progress](https://en.oxforddictionaries.com/definition/progress) / 
-[[3] Oxford dictionray Coexistence]  (https://en.oxforddictionaries.com/definition/coexistence)
+[[1] Oxford dictionray Progress](https://en.oxforddictionaries.com/definition/progress) / 
+[[2] Oxford dictionray Coexistence](https://en.oxforddictionaries.com/definition/coexistence)
 
 ## Why the need of a new religion
 The main religions right now are based on old texts. Christianity has the biblical canon, namely the New and Old Testament,
@@ -47,6 +49,13 @@ I want to create a modern religion, written socially by people, which can be a g
 I want to create a dynamic sacred script that is modified with the discovery of new technologies.
 I don't want to completely refuse the old and sacred texts, because I'm sure they contain deep fundamentals of the human nature,
 but I want population contribution towards writing a text that is for humans, written by humans.
+
+To tell the truth: Well I'm not sure where this idea might bring
+I just shot the flat stone on the lake.
+But I don't know how many bounces it will make and if it even will reach the other side.
+What I would like to make is really a comprehensive social media mediated religion that will maybe and possibily find the communication with the existing branches of religions.
+Of course wants to bring in typical religion stuff, like rites and traditions, if they absorbed by the regional traditions or if they are completely invented from scratch we will see.
+For now I'd like opinions and contributions.
 
 ##Satanism and the new religion
 Something that will go toward LaVey said. Laveyian Satanism is an atheist religion, that promote the individualism
