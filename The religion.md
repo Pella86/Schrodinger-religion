@@ -1,19 +1,21 @@
-#The religion
+# The religion
 This file will contain the body of the religion itself. How it should be construtcted or how should be conceived.
 
-##What is a religion?
+## What is a religion?
 > "Religion is a cultural system of behaviors and practices, world views, sacred texts, holy places, ethics, and societal organization, 
 > that relates humanity to what an anthropologist would call "an order of existence"."
 > Wikipedia [1] 
 
+[[1] wikipedia Religion](https://en.wikipedia.org/wiki/Religion)
+
+## The purpose of the Schrodinger religion
 This religion is meant to be a way of achieving coexistence in the human species and to promote progress.
 We will later define what is meant by progress and coexistence in more detail, but both terms should be taken in the literal form.
-Progress[2]: Development towards an improved or more advanced condition.
-Coexistence[3]: he state or condition of living in harmony despite different ideologies or interests. 
+Progress[1]: Development towards an improved or more advanced condition.
+Coexistence[2]: he state or condition of living in harmony despite different ideologies or interests. 
 
-[[1] wikipedia Religion](https://en.wikipedia.org/wiki/Religion) / 
-[[2] Oxford dictionray Progress](https://en.oxforddictionaries.com/definition/progress) / 
-[[3] Oxford dictionray Coexistence]  (https://en.oxforddictionaries.com/definition/coexistence)
+[[1] Oxford dictionray Progress](https://en.oxforddictionaries.com/definition/progress) / 
+[[2] Oxford dictionray Coexistence](https://en.oxforddictionaries.com/definition/coexistence)
 
 ## Why the need of a new religion
 The main religions right now are based on old texts. Christianity has the biblical canon, namely the New and Old Testament,
