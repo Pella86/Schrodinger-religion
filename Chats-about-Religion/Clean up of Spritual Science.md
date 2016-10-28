@@ -86,7 +86,8 @@ Pella Jiriya, [18.10.16 12:44]
 "Zero=infinity
 Space seems empty, yet it is jam packed with information. It has been discovered (Nassim Haramein) that the density of the vacuum has 10 to the 93 grams per centimeter cubed. 
 When your mind is empty, you'll find it too is jam packed with information. There is no difference between your mind and space... Ultimately, there is no difference between you and space other than the .000000001% particle fluctuation. The other 99.9999999% is space. We don't learn new things really. We just remember. Receive. You are and always with be the whole of creation. Silence the mind and remember."
-- Trevor James McGrath
+
+> Trevor James McGrath
 
 Pella Jiriya, [18.10.16 12:45]
 I think you copied some wrong measures here
@@ -122,7 +123,8 @@ I don't judge, it's just how someone wanted to express it and for some people it
 Milena, [18.10.16 12:53]
 [Forwarded from Aletheia Channel (Milena)]
 “The identity you're craving for is an illusion; your true nature has no identity, you're the universe -you contain all things!”
-― Aniekee Tochukwu
+
+> Aniekee Tochukwu
 
 Milena, [18.10.16 12:53]
 I'm searching for a nice article I posted on all this...
@@ -213,14 +215,8 @@ Yes exactly! You are facing it. Fear is a huge component of all that and needs t
 
 david davidson, [22.10.16 13:16]
 Anyone read Dune here
-
-david davidson, [22.10.16 13:16]
 By Frank Herbert
-
-david davidson, [22.10.16 13:16]
 That series is pretty heavy
-
-david davidson, [22.10.16 13:16]
 Especially the parts that discuss the interaction between religion and politics
 
 Milena, [22.10.16 13:16]
@@ -230,10 +226,6 @@ Yes and no :D this is funny, because again, all is consciousness. Mind and body 
 Milena, [22.10.16 13:17]
 [In reply to Pella Jiriya]
 True. But right now this theory makes the most sense and it also explains the findings in quantum physics :)
-
-Milena, [22.10.16 13:18]
-[In reply to david davidson]
-No sorry, I didn't :)
 
 Pella Jiriya, [22.10.16 13:19]
 [In reply to Milena]
@@ -332,33 +324,25 @@ Milena, [22.10.16 13:46]
 Yes. You are awesome! Here we have polarity AGAIN!  Haha the nature of all things always containes polarity, opposites, harmony and chaos at the same time. But still what I'm saying is possible, but this is another story :) 
 But yeah, I totally agree, we can't just face one side of the coin and ignore the other.
 
+### What is Ego? /end
+#### Summary
+(under contstruction)
+
+### Infinity = 0 = 1
+
 Milena, [22.10.16 13:48]
 [In reply to Pella Jiriya]
 I think all spiritual awakenings are pretty much the same :D they just differ in intensity.
 
 Pella Jiriya, [22.10.16 13:49]
 I think we should stop being spiritual and finally start to talk about humans
-
-david davidson, [22.10.16 13:50]
-Your display pic is disturbing
-
-Pella Jiriya, [22.10.16 13:51]
 Define ethics and define what is a good way to implement different cultures! Is it modularity or we should chose a main line? 
-
 What we define as acceptable or not? 
 What would be an awesome human being? What are the basic laws that will help us to build a society devoted to the progress?
-
 What kind of progress we want? 
-
 What is rage, fear, and other feelings? What is love? Who can have love or not? Is it right to love your mom? Sexually? Is it not why?
-
-Pella Jiriya, [22.10.16 13:51]
 Let's stop hiding behind the word normal
-
-Pella Jiriya, [22.10.16 13:52]
 Let's think how we can coexist in freedom with each other
-
-Pella Jiriya, [22.10.16 13:52]
 When is right killing a man? When is not?
 
 Milena, [22.10.16 13:52]
@@ -373,28 +357,17 @@ Milena, [22.10.16 13:53]
 It does logically, think about it ^^
 
 Pella Jiriya, [22.10.16 13:53]
-[ Photo ]
-Yours is disturbing too
-
-Pella Jiriya, [22.10.16 13:53]
 [In reply to Milena]
 It doesn't at all with my math knowledge but I would be happy to hear an explanation
 
 Pella Jiriya, [22.10.16 13:54]
 [In reply to Milena]
 But to my kid I want to teach him what's right and wrong
-
-Pella Jiriya, [22.10.16 13:54]
-[In reply to Pella Jiriya]
 Cause that's pretty much what he understands
 
 Milena, [22.10.16 13:55]
 [In reply to Pella Jiriya]
 Good questions again :) I won't answer them tho haha that would take to much time now and I'm aiming towards something different to be honest, but they are very important ethical questions nonetheless and everyone should sometimes ask them and think about the possible answers :)
-
-Milena, [22.10.16 13:55]
-[In reply to Pella Jiriya]
-💖
 
 Milena, [22.10.16 13:56]
 [In reply to Pella Jiriya]
@@ -441,7 +414,6 @@ Milena, [22.10.16 14:11]
 Oh okaaay... I wouldn't start with that... Oh boy haha this is a concept, I mean the concept of exchange and trade, that kills altruism in children.... Puuuh i don't have much time to describe it now but to sum it up: infants help other people altruistically, without wanting something in reward. But as soon as we start rewarding them, they stop helping when they don't get anything for it. 
 The intrinsic motivation to do something for another person is being replaced with an extrinsic materialistic motivation. 
 So for all parents: don't reward your children materialistically for doing something good. Praise is ok. 
-
 But I know that you were asking something slightly different, I just wanted to point out that you shouldn't teach your child that concept of exchange and trade too early... This can ruin some good traits in children.
 
 Milena, [22.10.16 14:12]
@@ -466,8 +438,6 @@ Pella Jiriya, [22.10.16 16:32]
 [In reply to Milena]
 Do you have any study about this? Because I would probably disagree on that.
 
-Pella Jiriya, [22.10.16 16:32]
-[In reply to Milena]
 No I'm not stuck 😂 I see where your misinterpretations of fractals come...
 
 Milena, [22.10.16 16:34]
@@ -486,8 +456,6 @@ Ok I have no idea what that means ^^
 
 Pella Jiriya, [22.10.16 16:47]
 Now explain me how fractals that are generated using the complex domain are in line of what you say?
-
-Pella Jiriya, [22.10.16 16:49]
 There's types of numbers in math:
 Positive Natural numbers (N)
 Positive/negative natural n (Z)
@@ -506,9 +474,6 @@ Pella Jiriya, [22.10.16 16:50]
 I think you should take a deep breath and before raping mathematical concepts and building theories upon it. You should grasp at least the basics
 
 Pella Jiriya, [22.10.16 16:51]
-[ GIF ]
-
-Pella Jiriya, [22.10.16 16:51]
 [In reply to Pella Jiriya]
 This is one of the most famous fractals, mandelbrot
 
@@ -522,8 +487,6 @@ I know
 
 Pella Jiriya, [22.10.16 16:52]
 There's a nice talk on youtube that explaines the basics and the implications, with comments from mandelbrot itself
-
-Pella Jiriya, [22.10.16 16:52]
 Is a good start if you want to continue to use the word fractal
 
 Milena, [22.10.16 16:52]
@@ -652,9 +615,6 @@ Milena, [22.10.16 17:08]
 [In reply to Pella Jiriya]
 I would include everything that is and isn't
 
-Pella Jiriya, [22.10.16 17:09]
-Uhm
-
 Milena, [22.10.16 17:09]
 Don't try to concretely define this, that is not possible haha
 
@@ -673,7 +633,6 @@ I can say everything inside this house I'm in rn or everything in the universe
 
 Milena, [22.10.16 17:10]
 Oh boy, I seriously have to come back to you later ^^
-
 But yes it is important to understand the nature of life
 
 Pella Jiriya, [22.10.16 17:10]
@@ -771,8 +730,6 @@ Yes :D I know
 Pella Jiriya, [22.10.16 17:26]
 [In reply to Rocky of Arabia]
 The second sentence is part of a next theory
-
-Pella Jiriya, [22.10.16 17:26]
 But the fact that the cat is dead AND alive at the same time
 
 Rocky of Arabia, [22.10.16 17:26]
@@ -815,20 +772,12 @@ Pella Jiriya, [22.10.16 17:31]
 [In reply to Milena]
 Although here I don't agree. There's reality that we can perceive (reality doesn't mean that for everybody is perceived the same) just that there's something real and within a set of rules we can predict useful outcomes. If I touch the switch light goes on, if I wait till morning sun will rise.
 
-💫, [22.10.16 17:32]
-What are we arguing about, again?
-
 Pella Jiriya, [22.10.16 17:33]
 [In reply to Rocky of Arabia]
 It's depending on the problem! And technically he doesn't choose at the moment if he will die or not.
 The experiment is bound to a fluctuating probability.
 This means that some scientist at that time found the cat dead, killed by the poison before, and some will find it alive because the poison didn't ticked.
-
 But if we can't open the box and still want to progress and make conclusion on the cat we can assume it might be alive and dead.
-
-💫, [22.10.16 17:34]
-[In reply to Pella Jiriya]
-^
 
 Milena, [22.10.16 17:35]
 [In reply to 💫]
@@ -872,10 +821,6 @@ I know what reality is. Is what is influenced by me and around me that makes a c
 Chris Spurs, [22.10.16 17:40]
 I don't want to imagine the implications of having no free will.. 😪
 
-Pella Jiriya, [22.10.16 17:40]
-[In reply to Milena]
-[ GIF ]
-
 Milena, [22.10.16 17:41]
 [In reply to Chris Spurs]
 I know :/ The first time I had an awakening on this I cried so much. But don't worry, you do have a will and it's more or less free to, but just on a whole other level when you think ^^ It goes beyond ego and that's why this realization hurts a little.
@@ -896,25 +841,9 @@ He is talking about his ego self now again haha but no it's not that easy, keep 
 Pella Jiriya, [22.10.16 17:44]
 [In reply to Milena]
 I saw under the skin
-
-Pella Jiriya, [22.10.16 17:44]
-B O R I N G
-O O
-R   R
-I     I
-N       N
-G         G
-
-Pella Jiriya, [22.10.16 17:44]
 Really I couldn't finish it
-
-Pella Jiriya, [22.10.16 17:44]
 It was obscene
-
-Pella Jiriya, [22.10.16 17:44]
 No real plot behind a movie covered in mist and nonsense
-
-Pella Jiriya, [22.10.16 17:45]
 Are the other 4 similar?
 
 Milena, [22.10.16 17:45]
@@ -923,37 +852,21 @@ I have to bring up this quote again
 Milena, [22.10.16 17:45]
 [Forwarded from Milena]
 I have an interesting quote here, it's a transcript from the movie "Waking Life":
-
 "I keep thinking about something you said.
-
 Something I said?
-
 Yeah. About how you often feel like you're observing your life from the perspective of an old woman about to die. You remember that?
-
 Yeah. I still feel that way sometimes. Like I'm looking back on my life. Like my waking life is her memories.
-
 Exactly. I heard that Tim Leary said as he was dying that he was looking forward to the moment when his body was dead but his brain was still alive. You know they say that there's still six to twelve minutes of brain activity after everything else is shutdown. And a second of dream consciousness, right, well, that's infinitely longer than a waking second. You know what I'm saying?
-
 Oh, yeah, definitely. For example, I wake up and it is 10:12, and then I go back to sleep and I have those long, intricate, beautiful dreams that seem to last for hours, and then I wake up and it's ... 10:13.
-
 Yeah, exactly. So then six to twelve minutes of brain activity, I mean, that could be your whole life. I mean, you are that woman looking back over everything.
-
 Okay, so what if I am? Then what would you be in all that?
-
 Whatever I am right now. I mean, yeah, maybe I only exist in your mind. I'm still just as real as anything else.
-
 Yeah. I've been thinking also about something you said.
-
 What's that?
-
 Just about reincarnation and where all the new souls come from over time. Everybody always say that they've been the reincarnation of Cleopatra or Alexander the Great. I always want to tell them they were probably some dumb fuck like everybody else. I mean, it's impossible. Think about it. The world population has doubled in the past 40 years, right? So if you really believe in that ego thing of one eternal soul, then you have only 50% chance of your soul being over 40. And for it to be over 150 years old, then it's only one out of six.
-
 Right, so what are you saying? That reincarnation doesn't exist, or that we're all young souls like where half of us are first round humans?
-
 No, no. What I'm trying to say is that somehow I believe reincarnation is just a - a poetic expression of what collective memory really is. There was this article by this biochemist that I read not long ago, and he was talking about how when a member of our species is born, it has a billion years of memory to draw on. And this is where we inherit our instincts.
-
 I like that. It's like there's this whole telepathic thing going on that we're all a part of, whether we're conscious of it or not. That would explain why there are all these, you know, seemingly spontaneous, worldwide, innovative leaps in science, in the arts. You know, like the same results poppin' up everywhere independent of each other. Some guy on a computer, he figures something out, and then almost simultaneously a bunch of other people all over the world figure out the same thing. They did this study. They isolated a group of people over time, and they monitored their abilities at crossword puzzles, right, in relation to the general population. And they secretly gave them a day-old crossword, one that had already been answered by thousands of other people, right. And their scores went up dramatically, like 20 percent. So it's like once the answers are out there, people can pick up on 'em. It's like we're all telepathically sharing our experiences."
-
 Death and Reality | Waking Life Transcript - Chapter 5 http://wakinglifemovie.net/Transcript/Chapter/5
 
 Milena, [22.10.16 17:46]
@@ -982,14 +895,10 @@ Pella Jiriya, [22.10.16 17:55]
 [In reply to Milena]
 Btw I wanted to ask something purely philosophical.
 What happen after death.
-
 This little movie transcript is actually bringing up some of my reasonments but then goes far away with reincarnation and collective memory. Those are concepts far beyond my question.
-
 So first of all what will happen when we die? Well our brain will have a total shut down, let's assume a grenade, so nothing physical will be present in a matter of microseconds.
-
 Now I think that dying might be similar to falling asleep. When we sleep a part from sporadic dreams (but let's not consider them for a moment) we don't remember to have slept.
 We do remember before and after. But we have no idea what happened in between! The universe might have disappeared and reappeared in our sleep that we won't really realize it.
-
 Now I think we can't exist, or our I can't exist without consciousness. Simply we disappear, and death will be the same like falling asleep we disappear, now we have a problem tho, after sleep our I reappears, but after dead for an infinite amount of time we will not wake up again so where does our I go?
 
 Pella Jiriya, [22.10.16 17:56]
@@ -999,11 +908,8 @@ Lol 😂 although the holographic universe theories stems from Descartes, you kn
 Milena, [22.10.16 17:57]
 Btw, here is the attempt to answer our previous questions from my friend:
 "So it's crazy/irrational to say 1=0, 0=1, or 1=Infinity, or 0=infinity. The only way that 1 could possibly equal 0 is if we are deducing the numerical properties of the same entity from different view points, or dimensions.
-
 So, as an example, we have an apple. A single real apple. So Apple=1..... But how could 1=infinity??? How could that Apple be infinite?
-
 And the answer is that i can cut the apple in half, making two pieces. Then in half again, making 4 pieces. And so on. Although this is an exponential growth, we could just as easily cut it into two pieces, then 3 pieces, then 4 (in a linear progression instead of exponential as in the previous example). Through doing this, we begin to face that we must now define the apple in terms of potential infinite variations in which is pieces can be parced. Thus we recognize that (1) apple has a)potentially infinite pieces that can be withdrawn, or separated, from it and 2) that there are potentially infinite methods of parcing as well... this allows us to derive two functional infinities from a single whole. 
-
 So the way we were able to assert that 1=Infinity is by looking at the apple from different dimension; which we have done in a VERY rudimentary sense since we have not defined the boundaries that we are operating from as we describe properties of the apple (except for the basic dimensional definitions of linear and exponential as we parced the apple). So now to explore how the apple=0, or 1=0, we are faced with a couple of main options. 1) that as the apple exists as a fruit of a tree (which is a larger whole than the individual apple), we can recognize that it is less than 1 in relation to the system that produced it (the tree which creates many apples). Yet can we get to 0??? It seems not. Yet there is another dimensional trick we can pull. Specifically, if we measure the apple in terms of its fundamental wave energies, then we can see that there is actually no coherent mass implicit to the apple when viewing it outside it's supporting environment of condensed mayer, thus is actually 0 in terms of its own self coherency...."
 
 Milena, [22.10.16 17:59]
@@ -1024,14 +930,8 @@ This is cool, and it has a direct source to the nature journal!
 Pella Jiriya, [22.10.16 18:00]
 [In reply to Pella Jiriya]
 And here is the nature journal
-
-Pella Jiriya, [22.10.16 18:00]
 "Our experiment confirms Bohr’s view that it does not make sense to ascribe the wave or particle behaviour to a massive particle before the measurement takes place"
-
-Pella Jiriya, [22.10.16 18:00]
 Now this is the main article conclusion
-
-Pella Jiriya, [22.10.16 18:01]
 No time, future and past really addressed
 
 Milena, [22.10.16 18:01]
@@ -1052,22 +952,13 @@ Wrong? 😐 they are proofing right a concept
 Milena, [22.10.16 18:03]
 [In reply to Pella Jiriya]
 I think it was in that video
-
-Milena, [22.10.16 18:03]
-Sorry btw, I have so little time rigth now and am doing several things at once 😨
-
-Milena, [22.10.16 18:03]
+10 Theories That Will Make You Lose Your Mind
 https://www.youtube.com/watch?v=Wc5N45K5zeQ
-
-Milena, [22.10.16 18:04]
-^ that video 😅
 
 Pella Jiriya, [22.10.16 18:07]
 [In reply to Milena]
 Ok, the thing makes sense but really you're assuming so many paradigms that let's be clear Milena you can't explain. So you technically are blindly believing in it. 
-
 Moreover I define the apple as one, not in hoe many pieces I can cut it up, and if I wanted to consider the wave ground state I would have done it in the premise. Now all in all the apple itself is one, can be an infinite and can be a zero, given some observational parameters.😑 but I can't put in a program coding 
-
 Apple = 1; and then expecting it to behave as an infinite or even as a zero. 
 It depends everything from the measuring conditions, said very well in the text brought by your friend.
 
@@ -1112,11 +1003,7 @@ and we choose it to be real or not
 
 Pella Jiriya, [22.10.16 18:12]
 Reality is a definition 😐
-
-Pella Jiriya, [22.10.16 18:12]
 Truth is a concept
-
-Pella Jiriya, [22.10.16 18:13]
 Reality can't be utopic because is tangible and perciveable
 
 Milena, [22.10.16 18:13]
@@ -1129,11 +1016,7 @@ But what you percieve can already be not real. you can never be sure about it be
 
 Pella Jiriya, [22.10.16 18:14]
 It is
-
-Pella Jiriya, [22.10.16 18:14]
 Second link
-
-Pella Jiriya, [22.10.16 18:14]
 Definition of reality
 
 Milena, [22.10.16 18:14]
@@ -1163,32 +1046,14 @@ I never said is impossible?
 
 Pella Jiriya, [22.10.16 18:15]
 Given a set of rules you can do whatever you want
-
-Pella Jiriya, [22.10.16 18:16]
 The difficult thing is "keep it real"
-
-Pella Jiriya, [22.10.16 18:16]
 Keep it connected to modern science
-
-Pella Jiriya, [22.10.16 18:16]
 Keep it rigorous
-
-Pella Jiriya, [22.10.16 18:16]
 Keep it in a frame that is not fantasy
-
-Pella Jiriya, [22.10.16 18:17]
 Ofc behind me where I can't see. My room can disassemble in a space ship
-
-Pella Jiriya, [22.10.16 18:17]
 Or in the absolute void
-
-Pella Jiriya, [22.10.16 18:17]
 Or materializing the totatility of universe what even is
-
-Pella Jiriya, [22.10.16 18:17]
 But the point is, that if I turn around
-
-Pella Jiriya, [22.10.16 18:17]
 I'll see my room
 
 Milena, [22.10.16 18:18]
@@ -1201,14 +1066,8 @@ Uhm... I told you in the beginning. What you have are mere fantasies and maybe d
 
 Pella Jiriya, [22.10.16 18:19]
 I see in you me 5 years ago
-
-Pella Jiriya, [22.10.16 18:19]
 Exploring the 4 dimensions and the implications they have
-
-Pella Jiriya, [22.10.16 18:20]
 I explored them also mathematically making a 4 dimensional snake game
-
-Pella Jiriya, [22.10.16 18:21]
 Yet I've come now to the conclusion that some stuff can't be explained, some other can be addressed and others are only a game for the mind,  like the 4 euclidean geometrical dimension
 
 Milena, [22.10.16 18:24]
@@ -1218,11 +1077,7 @@ Actually everything I am saying comes from "All is one". It's not fantasy but lo
 
 Pella Jiriya, [22.10.16 18:26]
 I'm really trying to understand what you mean by all is one
-
-Pella Jiriya, [22.10.16 18:26]
 But wit the same definition all could be 1.2345 or pi
-
-Pella Jiriya, [22.10.16 18:26]
 So idek where to start
 
 Milena, [22.10.16 18:27]
@@ -1231,8 +1086,6 @@ Thank you. I believe we are both not that far away from each other, we just need
 
 Pella Jiriya, [22.10.16 18:27]
 I think so but I'm afraid
-
-Pella Jiriya, [22.10.16 18:28]
 I'm afraid that your theories are bound with esoterism and I'm trying to make a human religion, based on human behavior more than cosmical enlightenment
 
 Milena, [22.10.16 18:29]
@@ -1246,32 +1099,29 @@ Milena, [22.10.16 18:30]
 [In reply to Pella Jiriya]
 Will try to help you more on that level
 
-Pella Jiriya, [22.10.16 18:30]
-[ 👍 Sticker ]
-
 Milena, [22.10.16 18:31]
 [In reply to Milena]
 and leave the rest out as far and long as possible, but I believe we can't get around it completly, because it's all correlated...but we will find a way 👍🏼
 
 Pella Jiriya, [22.10.16 19:27]
 Just one thing... maybe makes more clear my way of thinking.
-
-Pella Jiriya, [22.10.16 19:30]
 For example free will I say we have a choice, because at the moment of choice I make a decision which path to take.
-
 Now if a presence decided that choice for me beforehand negating my free will, but I can't see nor interact with this presence then does that presence exist or not? Does the answer will help me with the choice or not? Can I even influence that presence? If I can't then why should I worry of a presence that I can't be sure if is there or not, I'm not sure I can influence, and if I don't know about that presence the result is the same?
 
 Milena, [22.10.16 19:40]
 [In reply to Pella Jiriya]
 Is it? Try to shift you focus and to find answers for the opposite.
 
+### Infinity = 0 = 1 /end discussion
+####Summary
+(under construction)
+
+### Consciousness
 Chris Spurs, [22.10.16 20:04]
 Hey
 
 Chris Spurs, [22.10.16 20:04]
 I have been wondering, what are we really? A collection of atoms conscious of itself? How? When we die, does this collection of atoms still recognize itself? What is consciousness? 
-
-
 A thousand questions in my mind.
 
 Pella Jiriya, [22.10.16 20:15]
