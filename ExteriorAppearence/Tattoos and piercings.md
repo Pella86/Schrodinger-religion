@@ -1,27 +1,22 @@
 #Introduction
-This is about what the human mind and society perceive as the ink on the body. 
-I'll talk also about piercings, they've been used by the gay community as a tag, a symbol to be different.
-Although shall we accept as society all the body modifications? Like a split tongue or plastic implants to grow horns.
+This section is about what the human mind and society perceive as ink on the body. 
+I will also talk about piercings as they've been used by the gay community as a tag or a symbol to be different.
+Should we accept all of society's body modifications? What about split tongues and  plastic implants to mimic the appearance of horns?
 
 ![Image of Piercings](https://em.wattpad.com/9f90ae3b92f15afbc9a0ce97176634d71bfe9579/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f6a65497951617465364376636f773d3d2d3239373836323137362e313436613834313030366634333566373134363539333634373031382e6a7067?s=fit&w=1280&h=1280)
 
 ##Piercings in general  
 
-The piercing in the society has been now widely spread accepted. The piercing is any metal/plastic object in sites different than
-the lower ear lobe. Although here in this paragraphs I underwent a general description. Piercing can be of many kinds,
-from a simple nose piercing, a septum piercing or even a dimple piercing. The earring is more accepted, while a septum piercing is not,
-already this difference is kind of strange. So where do we start to identify a piercing as overdone? As non social acceptable?
+Piercings have become widely spread and generally accepted in society. The piercings I am referring to are any metal/plastic object in sites different than the standard lower ear lobe. Although this paragraph is a general description. kindsThere are many kinds of piercings, ranging from a simple nose piercing, a septum piercing or even a dimple piercing. The earring is more accepted, while a septum piercing is not. Already this difference is kind of strange. So at what point is a piercing consider overdone and no longer acceptable to society?
 
-Piercings were used in the past as a recognition elements. For example the value of the ear ring was determining in which social
-status you would belong. With the increased medical health measure wilder piercing became possible.
-The piercing or earring can cause infections, or even cause death if the infection goes untreated.
-However with the new techniques in medicine one can explore piercings in other part of the body.
-Not only on the head, but all over the body. A piercing on a man is less accepted till today, although a ear ring or a eyebrow piercing
-can increase the sex appeal. In the 70ies the piercing was used to be a recognition for gay people.
-For example a piercing (like Elton John) on the right ear lobe shows the alternative sexual orientation.
+Piercings were once used as an element of recognition. For example, the value of the earring was used in determining which social
+class you would belong. With the expanding medical health facilities, wilder piercing became possible.
+Piercings can cause infections and even death if the infection is left untreated.
+However, with the new techniques in medicine, one can explore piercings in other part of the body.
+Not just on the head, but all over the body. Male piercings are still less acccepted today, although an earring or an eyebrow piercing can increase the sex appeal of the person. In the seventies, the piercing was used as a way to distinguish potential homosexual partners from heterosexual men. For example, a piercing, like Elton John, on the right ear lobe shows the alternative sexual orientation.
 
-A piercing can be used also sexually, genital piercings are used to increase the orgasm. 
-Not only penis piercing, but also vaginal or on the nipples. Sexual play with piercing should be more exciting. 
+A piercing can be used also sexually. Genital piercings are used to increase orgasms. 
+This is not limited to only penis piercing, but also vaginal or nipples piercings. Sexual play with piercing should be more exciting. 
 I'm personally completely in favor to this modifications. If somebody would disagree, I'd love to hear the motivations.
 
 ![Image of Tongue Piercings](https://em.wattpad.com/890202f2765600de772cccbf4875e3388d64a6a4/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f6146795758796c446c4d4a334a413d3d2d3239373836323137362e313436616535313363623964646634333736333730373733353335392e6a7067?s=fit&w=1280&h=1280)
