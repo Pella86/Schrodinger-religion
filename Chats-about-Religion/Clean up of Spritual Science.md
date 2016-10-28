@@ -37,6 +37,7 @@ Does a natural or supernatural being considered divine or sacred (God or deity) 
 - Others – 5
 
 > 109 people voted so far.
+
 ### Non informal poll about believing in a deity. /end
 #### Summary
 (under construction)
