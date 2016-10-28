@@ -9,779 +9,34 @@ https://telegram.me/spiritualscience
 https://telegram.me/spiritscience
 
 ##Start when I joined the chat
-Pella Jiriya, [16.10.16 14:25]
-Heyo!
+###### deleted a huge flame discussion about pming people.
 
-Pella Jiriya, [16.10.16 14:25]
-I would actually make the chat private and use a public channel as a spotlight
+###### Non informal poll about believing in a deity.
 
-◀Rheo▶, [16.10.16 14:26]
-[In reply to Sanjay S]
-Ty
-
-◀Rheo▶, [16.10.16 14:28]
-[In reply to SK HIM]
-I live 30 km from ujjain 😳
-
-◀Rheo▶, [16.10.16 14:29]
-That city is full of ancient structures
-
-◀Rheo▶, [16.10.16 14:31]
-But still nothing compared to another nearby town called mandav
-
-Milena, [16.10.16 15:15]
-[In reply to Pella Jiriya]
-Why? :)
-
-Pella Jiriya, [17.10.16 07:39]
-[In reply to Milena]
-I'm reported 90% of the time on telegram
-
-Pella Jiriya, [17.10.16 07:40]
-Who's reported can't talk in public groups
-
-Pella Jiriya, [17.10.16 07:40]
-Also limitations are stricter on public groups
-
-Milena, [17.10.16 07:51]
-Hmm ok I understand. But most people are not being reported I believe :) I hope you are not going to be reported again too.
-
-Pella Jiriya, [17.10.16 07:56]
-[In reply to Milena]
-I know that most people aren't reported
-
-Pella Jiriya, [17.10.16 07:57]
-But for example I'm reported every now and then
-
-Pella Jiriya, [17.10.16 07:57]
-I will just disappear from the chat and I would have to no means to tell anybody here that I'm reported
-
-Milena, [17.10.16 07:59]
-Hmm can you explain why you are being reported? Maybe you can just stop doing what you do that leads to you being reported 😅
-
-Pella Jiriya, [17.10.16 08:00]
-[In reply to Milena]
-Do you think I'm an idiot? 😅
-
-Milena, [17.10.16 08:00]
-Haha no 😂
-
-Pella Jiriya, [17.10.16 08:00]
-[Forwarded from Pellagram]
-#faq no3: Why is Pella always reported
-
-☆ Reported?
-Yes people can report you, and you'll have limitations on your account, check @spambot to see your status.
-
-☆ What are the limitations?
-First level you can't initiate pm or invite people to groups.
-Second level you can't talk in public groups (the one with @tag)
-
-☆ Who can report?
-When one initiate a pm with you, you can chose to report it for spam.
-Group admins have the option to report users.
-Telegram support checks if the message was offensive and decide a punishment.
-
-☆ Then what you did wrong Pella?
-Advertising group links in other groups is viewed as spam. I do ask admins of other groups if I can share my links, yet some people still find funny to report me anyway.
-And if you get reported once you end up in a black list, so it's easier to get limited again.
-
-Milena, [17.10.16 08:00]
-I'm just wondering
-
-Pella Jiriya, [17.10.16 08:00]
-Since people do always the same questions I've made a channel
-
-Comrade "Ж" Joshua, [17.10.16 08:01]
-[In reply to Pella Jiriya]
-Nah Milena is too nice
-
-Pella Jiriya, [17.10.16 08:01]
-And this is the explanation
-
-Pella Jiriya, [17.10.16 08:01]
-[In reply to Comrade "Ж" Joshua]
-She seems
-
-Comrade "Ж" Joshua, [17.10.16 08:02]
-Hey Milena are you a Russian who moved to Germany?
-
-Comrade "Ж" Joshua, [17.10.16 08:03]
-I'm just wondering how a Russian/German bilingual happens
-
-Milena, [17.10.16 08:03]
-Ok I see. So it's because you send group invitations in other groups... I can understand that some people might overreact here a little.
-
-Milena, [17.10.16 08:03]
-[In reply to Comrade "Ж" Joshua]
-Yes :)
-
-Comrade "Ж" Joshua, [17.10.16 08:04]
-[In reply to Milena]
-I think he PMs without warning too much
-
-Comrade "Ж" Joshua, [17.10.16 08:04]
-[In reply to Milena]
-Ohhh okay I see
-
-Milena, [17.10.16 08:04]
-[In reply to Comrade "Ж" Joshua]
-Yes this can be annoying too ^^
-
-Comrade "Ж" Joshua, [17.10.16 08:05]
-[In reply to Comrade "Ж" Joshua]
-I'm a half Romanian Icelander living in America
-
-Pella Jiriya, [17.10.16 08:05]
-[In reply to Milena]
-The real problem is that I sent those links with people permissions.
-
-Second I'm on a black list, if you would report me now, I will get a week ban, and people won't check what I did
-
-Comrade "Ж" Joshua, [17.10.16 08:05]
-I know the feel of language transition
-
-Milena, [17.10.16 08:06]
-[In reply to Comrade "Ж" Joshua]
-Oh that's a nice mix too :D
-
-Pella Jiriya, [17.10.16 08:06]
-[In reply to Comrade "Ж" Joshua]
-Never did that dumbass
-
-Milena, [17.10.16 08:06]
-[In reply to Pella Jiriya]
-Ok you see you shouldn't use such words :)
-
-Pella Jiriya, [17.10.16 08:06]
-I wrote a paragraph on why I'm reported
-
-Pella Jiriya, [17.10.16 08:06]
-[In reply to Milena]
-Why?
-
-Pella Jiriya, [17.10.16 08:07]
-I send a long explanation about what I did
-
-Comrade "Ж" Joshua, [17.10.16 08:07]
-[In reply to Pella Jiriya]
-Bruh chill
-
-Pella Jiriya, [17.10.16 08:07]
-He purposely chose to ignore it
-
-Pella Jiriya, [17.10.16 08:07]
-Disrespecting me
-
-Pella Jiriya, [17.10.16 08:07]
-And i can't call him dumbassM
-
-Pella Jiriya, [17.10.16 08:07]
-?
-
-Pella Jiriya, [17.10.16 08:07]
-Explain me how it works please
-
-Comrade "Ж" Joshua, [17.10.16 08:07]
-[In reply to Pella Jiriya]
-Um no?
-
-Comrade "Ж" Joshua, [17.10.16 08:08]
-[In reply to Pella Jiriya]
-Where are you from?
-
-Comrade "Ж" Joshua, [17.10.16 08:08]
-Mate we're here to make friends and to discuss spirituality and science. Not to insult one another
-
-Pella Jiriya, [17.10.16 08:08]
-[ 😕 Sticker ]
-
-Milena, [17.10.16 08:08]
-[In reply to Pella Jiriya]
-Because it's not nice and people will get offended. Even if you explain everything a thousand times it's no guarantee that everyone understands you and it's no reason to use words like that. Just remember how you want to be treated.
-
-Pella Jiriya, [17.10.16 08:09]
-[In reply to Comrade "Ж" Joshua]
-Have you read this:
-https://telegram.me/pellagram/30
-
-If so why then you accuse me to slide in people pm without warning?
-
-Pella Jiriya, [17.10.16 08:10]
-[In reply to Comrade "Ж" Joshua]
-Italy, what does that have to do in this context? Please explain me
-
-Pella Jiriya, [17.10.16 08:10]
-[In reply to Comrade "Ж" Joshua]
-Then don't insult me first
-
-Comrade "Ж" Joshua, [17.10.16 08:10]
-[In reply to Pella Jiriya]
-Because I'm curious and English is clearly not your first language
-
-Comrade "Ж" Joshua, [17.10.16 08:10]
-[In reply to Pella Jiriya]
-I legitimately got a chuckle from this.
-
-Pella Jiriya, [17.10.16 08:11]
-[In reply to Milena]
-Lol please 😐 he offends me and I have to stay quiet? I'm not here to take in offense without reacting
-
-Milena, [17.10.16 08:11]
-[In reply to Pella Jiriya]
-Pella, he might have misunderstood something. It's not disrespecting and not a crime. And even IF he was disrespecting you, there is still no reason to disrespecting him back. Such a behavior causes people a lot of trouble and is not a good way to communicate in general.
-
-Pella Jiriya, [17.10.16 08:11]
-[In reply to Comrade "Ж" Joshua]
-Happy that disrespecting people makes it funny for you
-
-Pella Jiriya, [17.10.16 08:11]
-[In reply to Comrade "Ж" Joshua]
-^^^^^
-This is insulting
-
-david davidson, [17.10.16 08:11]
-there is a certain amount of fun to be had at other's peoples expense
-
-Pella Jiriya, [17.10.16 08:12]
-[In reply to Comrade "Ж" Joshua]
-Yes it is not. So you're from a native English speaking country?
-
-Comrade "Ж" Joshua, [17.10.16 08:12]
-[In reply to Pella Jiriya]
-Nope
-
-Comrade "Ж" Joshua, [17.10.16 08:12]
-English is my fifth language actually.
-
-Milena, [17.10.16 08:12]
-[In reply to Pella Jiriya]
-He didn't offend you. But again, staying over such things means to be nice and try to understand the other person no matter what. I don't know if you are aware of it but this is a very important trait in spiritual context and the first thing to learn for everyone who wants to improve himself.
-
-Pella Jiriya, [17.10.16 08:13]
-[In reply to Milena]
-No no, if he misunderstand he asks me about it
-
-Pella Jiriya, [17.10.16 08:13]
-He made an insinuation that is not true, disrespecting  and offending
-
-Comrade "Ж" Joshua, [17.10.16 08:13]
-Pella, I did not intend to insult you I'm sorry that what I offended you
-
-Pella Jiriya, [17.10.16 08:13]
-[In reply to Comrade "Ж" Joshua]
-Ok, where are you from?  And what's your native language?
-
-Milena, [17.10.16 08:14]
-[ Photo ]
-
-Comrade "Ж" Joshua, [17.10.16 08:14]
-[In reply to Pella Jiriya]
-Iceland and Icelandic, although I grew up speaking Romanian because my mother. I learned French and Norwegian in school and English when I moved to the US
-
-Comrade "Ж" Joshua, [17.10.16 08:15]
-[In reply to Milena]
-Solid rules honestly
-
-Milena, [17.10.16 08:16]
-[In reply to Pella Jiriya]
-Look, the way you interpret it and react to it is YOUR decision!! You are not a robot who reacts offended automatically. It's a choice you make. I tell you if you choose to not get offended it will make your life a lot easier and better. Train yourself, see your ego taking over in such situations.
-
-Pella Jiriya, [17.10.16 08:16]
-[In reply to Milena]
-Again he assumed I would pm people without consent.
-
-This is an offense since I highly regard people privacy and I'm extremely correct.
-
-I can't pm people since June because I'm constantly reported.
-
-And he ASSUMES I get reported for pmming people? 
-That's just a dumbass in my opinion
-
-Pella Jiriya, [17.10.16 08:16]
-[In reply to Comrade "Ж" Joshua]
-Nice! First Icelandic I meet 😂
-
-Pella Jiriya, [17.10.16 08:17]
-[ Photo ]
-
-Milena, [17.10.16 08:17]
-[In reply to Pella Jiriya]
-So what :D this would never be offensive to me and it shouldn't be to you too. Just ignore it or say something like this: "no you misunderstood me, I'm not doing this". It's not that difficult :)
-
-Comrade "Ж" Joshua, [17.10.16 08:17]
-[In reply to Pella Jiriya]
-And I've apologized and stated my intent
-
-Pella Jiriya, [17.10.16 08:17]
-[ Photo ]
-
-Comrade "Ж" Joshua, [17.10.16 08:18]
-[In reply to Pella Jiriya]
-I'll just quote the entirety of rule 1
-
-Milena, [17.10.16 08:18]
-[In reply to Pella Jiriya]
-Haha yes true Pella. But you have been making assumptions too by saying he intended to offend you 😊
-
-Comrade "Ж" Joshua, [17.10.16 08:18]
-If you wanna do that you've technically violated /way/ more rules than me.
-
-Pella Jiriya, [17.10.16 08:18]
-[In reply to Milena]
-It is offensive to me😐
-
-I would have been kind and polite if he would have asked 😑 
-
-After I send a long text about me getting reported 😐
-
-Pella Jiriya, [17.10.16 08:19]
-[In reply to Milena]
-He did offend me.  If he intended or not, I don't really care
-
-Pella Jiriya, [17.10.16 08:19]
-[In reply to Comrade "Ж" Joshua]
-I appreciate the apology
-
-Pella Jiriya, [17.10.16 08:19]
-I'm showing Milena that my over reaction is justified
-
-Pella Jiriya, [17.10.16 08:20]
-[In reply to Comrade "Ж" Joshua]
-Rules of the chat? Which ones?
-
-Milena, [17.10.16 08:20]
-[In reply to Pella Jiriya]
-I understand. My advice is to not expect anything from others. Just behave the way you want others to be. And don't be offended or angry at anyone, this does not make any sense and is not helpful in any situation. I know it's not easy, I used to be a person that got offended easily myself, but life is just to short for this.
-
-david davidson, [17.10.16 08:21]
-what's going on here
-
-david davidson, [17.10.16 08:21]
-I smell flame war.
-
-Comrade "Ж" Joshua, [17.10.16 08:21]
-[In reply to Pella Jiriya]
-The entirety of paragraph 1
-
-Milena, [17.10.16 08:21]
-[In reply to david davidson]
-No it's all fine and over soon :) don't worry
-
-Comrade "Ж" Joshua, [17.10.16 08:21]
-[In reply to david davidson]
-I've offended him somehow. I'm trying not to make it a big thing
-
-david davidson, [17.10.16 08:22]
-aw man I was hoping to join in on the fun.
-
-david davidson, [17.10.16 08:22]
-back to pol it is.
-
-Milena, [17.10.16 08:22]
-[In reply to david davidson]
-Haha some people like fire xD
-
-Comrade "Ж" Joshua, [17.10.16 08:22]
-[In reply to Pella Jiriya]
-Just use "reaction" "overreactions" are by definition never justified
-
-Comrade "Ж" Joshua, [17.10.16 08:22]
-[In reply to david davidson]
-Idk you. But I like you already
-
-Pella Jiriya, [17.10.16 08:23]
-[In reply to Milena]
-Just behave the way you want others to be. 
-
-I'm behaving how I want to be... 😑
-
-And don't be offended or angry at anyone, this does not make any sense and is not helpful in any situation. 
-
- life is just to short for this.
-
-Overeating online causes reactions, people react and don't ignore me, the attention whore in me is very pleased by that.
-
--> I overreact on purpose to get people reaction out of it 😆
-
-david davidson, [17.10.16 08:23]
-they cut power to Julian Assange's location in Longon
-
-david davidson, [17.10.16 08:23]
-It's happening people. It's happening.,
-
-Pella Jiriya, [17.10.16 08:23]
-[In reply to Comrade "Ж" Joshua]
-I express myself correctly and understandably 😐
-
-Pella Jiriya, [17.10.16 08:24]
-[In reply to Comrade "Ж" Joshua]
-They are 😁😂 if is what you're looking for.
-
-If i would have been calm about it I would have never get an apology
-
-Milena, [17.10.16 08:24]
-[In reply to Pella Jiriya]
-Ah ok, this makes a little more sense. Thank you for telling us and being that open :) the psychology student in me immediately wants to address hidden emotional pain and cure all that haha but we will leave that out I think. But it's good to understand you more :)
-
-Milena, [17.10.16 08:25]
-[In reply to david davidson]
-😱
-There is a lot happening lately, massive quickening of events
-
-Comrade "Ж" Joshua, [17.10.16 08:25]
-[In reply to Pella Jiriya]
-No... They're not. By definition that word does not mean what you think  it means
-
-Comrade "Ж" Joshua, [17.10.16 08:26]
-Boiiii I suggest you drop it now I've apologized, it's over, done, completed, finished.
-
-Pella Jiriya, [17.10.16 08:26]
-[In reply to Milena]
-Lol 😂 this makes me laugh in the good sense 😁 
-Professional kink, is awesome, you'll psychanalyze everybody from now on.
-
-Milena, [17.10.16 08:26]
-[In reply to Pella Jiriya]
-Ok I know that we shouldn't get into this now, but you are only pleasing your ego with this. And in most cases ego is not your friend and will ruin your life if you listen to it too much.
-
-Pella Jiriya, [17.10.16 08:27]
-[In reply to Comrade "Ж" Joshua]
-Again assuming 😐
-
-Comrade "Ж" Joshua, [17.10.16 08:27]
-[In reply to Milena]
-Right
-
-Pella Jiriya, [17.10.16 08:27]
-Dude stop assuming I do and don't
-
-david davidson, [17.10.16 08:27]
-this is the most boring flame war ever.
-
-Milena, [17.10.16 08:27]
-[In reply to Pella Jiriya]
-I'm silently doing it all the time ;)
-
-david davidson, [17.10.16 08:27]
-why can't you call each other assholes and call it a day.
-
-Pella Jiriya, [17.10.16 08:27]
-I do stuff on purpose 😅
-
-Comrade "Ж" Joshua, [17.10.16 08:27]
-[In reply to Pella Jiriya]
-Dude you're an idiot. You directly said the word that was used in an incorrect context
-
-Comrade "Ж" Joshua, [17.10.16 08:27]
-I suggest you just accept the assistance with your blatantly poor English and move on.
-
-Comrade "Ж" Joshua, [17.10.16 08:28]
-[In reply to david davidson]
-I saw this so I gotta spice it up tbh
-
-Milena, [17.10.16 08:28]
-[In reply to david davidson]
-I'm sorry it's my fault I think 😅
-
-Comrade "Ж" Joshua, [17.10.16 08:28]
-Sorry Milena it's just for the meme
-
-Pella Jiriya, [17.10.16 08:28]
-[In reply to Milena]
-Uhm my life is awesome, I have a huge circle of friends online, and the fact I'm a cunt when I come to a chat grants me a lot of visibility... idk why you see that as wrong 😨
-
-david davidson, [17.10.16 08:28]
-apology for poor englis but wer were u wen assange was drone. I was home making pepe wen vladimir rang. julian is kil. no
-
-Comrade "Ж" Joshua, [17.10.16 08:29]
-[In reply to david davidson]
-Am poor man from Venezuela y I wunt papurs plz no deport me plz I lik Americuh
-
-Pella Jiriya, [17.10.16 08:29]
-[In reply to Comrade "Ж" Joshua]
-Uh??? Overreaction is justified if you want people to overreact back 😐
-How's that making the use of the word wrong
-
-Milena, [17.10.16 08:29]
-[In reply to Pella Jiriya]
-Because there is a reason why you are doing this :) but I'm REALLY not going into this haha sorry. 
-So you only want attention our are you really interested in the group topic?
-
-Comrade "Ж" Joshua, [17.10.16 08:30]
-[In reply to Pella Jiriya]
-Because by definition an overreaction isn't appropriate or justified
-
-Comrade "Ж" Joshua, [17.10.16 08:30]
-By /definition/ m8
-
-Comrade "Ж" Joshua, [17.10.16 08:30]
-Watch this skit
-
-Pella Jiriya, [17.10.16 08:30]
-[In reply to Comrade "Ж" Joshua]
-My blatant poor english is enough to communicate. Your english isn't that good either, I'm sorry 😅 you have some blatant mistakes too. So your acting superior is really an asshole behavior rn.
-
-Pella Jiriya, [17.10.16 08:31]
-[In reply to Milena]
-I'm here because I have and am interested in discussing religion since I'm trying to make my own.
-
-Comrade "Ж" Joshua, [17.10.16 08:31]
-[In reply to Pella Jiriya]
-Intending only to decrease the dopamine in another's cognitive center realizes finally in the result of the lowering of the net amount of happiness in the via of the one.
-
-Comrade "Ж" Joshua, [17.10.16 08:31]
-You couldn't have timed that better bud
-
-david davidson, [17.10.16 08:32]
-both of yall need to smoke a joint
-
-david davidson, [17.10.16 08:32]
-or fifteen
-
-david davidson, [17.10.16 08:32]
-I'll join u as well
-
-Comrade "Ж" Joshua, [17.10.16 08:32]
-[In reply to Pella Jiriya]
-My blatantly poor English is sufficient to communicate and your English isn't that good either so I'm sorry because you have some pretty blatant mistakes as well so you acting superior is the movement of an asshole*
-
-Comrade "Ж" Joshua, [17.10.16 08:33]
-[In reply to david davidson]
-I promise I'm not actually salty
-
-Pella Jiriya, [17.10.16 08:33]
-[In reply to Comrade "Ж" Joshua]
-Appropriate = fitting to the context 
-
-Context: wanting to offend people to cause a over reaction
-
-This means overreaction makes it perfectly adapt to the context, thus appropriate...
-
-I think you might want to revise your superior english knowledge
-
-Comrade "Ж" Joshua, [17.10.16 08:33]
-At this point it's just fun
-
-Milena, [17.10.16 08:33]
-Ok guys, we are finishing this now ok? Everyone has made mistakes and everyone told the other about it. We are still all one and concsiously or not love each other 😅 
-
-Pella if you are really interested in the group topic then please stay and try to be as nice as possible and don't put up fights anymore please and also do not overreact just to get attention. 
-But if fights are what you are looking for you might get a little bored here anyway so you are better off if you leave. At this point you decide.
-
-Comrade "Ж" Joshua, [17.10.16 08:33]
-[In reply to Pella Jiriya]
-I kekd because that's simply not correct
-
-Comrade "Ж" Joshua, [17.10.16 08:34]
-[In reply to Milena]
-Understood. Meme over
-
-Milena, [17.10.16 08:34]
-[In reply to Pella Jiriya]
-Ok this is legit. Please leave the drama out and we can discuss almost everything you want.
-
-Pella Jiriya, [17.10.16 08:35]
-[In reply to Comrade "Ж" Joshua]
-Uhm... 😞 dopamine is not the only neurotransmitter that causes anger. I'm so sorry you have to use big words to make a sentence. 
-
-Pissing off people grants attention. You can't deny it.
-Btw what's your field of studies?
-
-Milena, [17.10.16 08:35]
-[In reply to david davidson]
-😂
-
-Comrade "Ж" Joshua, [17.10.16 08:35]
-[In reply to Pella Jiriya]
-Dopamine doesn't cause anger ever XD
-
-Pella Jiriya, [17.10.16 08:35]
-[In reply to Comrade "Ж" Joshua]
-Thx for the corrections 😊
-
-Comrade "Ж" Joshua, [17.10.16 08:36]
-[In reply to Pella Jiriya]
-Psychology
-
-Pella Jiriya, [17.10.16 08:36]
-[In reply to Comrade "Ж" Joshua]
-It is absolutely correct 😕
-
-Milena, [17.10.16 08:37]
-[In reply to Comrade "Ж" Joshua]
-🙌
-
-Pella Jiriya, [17.10.16 08:37]
-[In reply to Comrade "Ж" Joshua]
-Yes 😮 is a stimulatory neurotransmitter and gets regulated during anger
-
-Comrade "Ж" Joshua, [17.10.16 08:37]
-Ish, you were right about the use of "appropriate" but you meant to cause a reaction an overreaction really wouldn't be used that way
-
-Pella Jiriya, [17.10.16 08:38]
-[In reply to Comrade "Ж" Joshua]
-I see ☺️ I could imagine it by naming a neurotransmitter out of context.
-
-I'm a biologist and sometimes I cringe at the limited knowledge psychologist and psychiatrist have behind the molecular architecture of the brain.
-
-Comrade "Ж" Joshua, [17.10.16 08:38]
-[In reply to Pella Jiriya]
-Well along with Serotonin it causes happiness, by decreasing it you cause anger not by increasing it
-
-Comrade "Ж" Joshua, [17.10.16 08:39]
-[In reply to Pella Jiriya]
-For that amount of arrogance I'm shocked about how wrong you are
-
-Pella Jiriya, [17.10.16 08:39]
-[In reply to Comrade "Ж" Joshua]
-😉 i act dumb but... I'm decently smart, I don't like to show it tho 😊
-
-Comrade "Ж" Joshua, [17.10.16 08:39]
-[In reply to Comrade "Ж" Joshua]
-I am a neuropsychologist, I deal almost entirely with the biological make up of the brain
-
-Pella Jiriya, [17.10.16 08:41]
-[In reply to Comrade "Ж" Joshua]
-I would say that depending in which neuronal circuit does dopamine find is increased or decreased in case of anger.
-Dopamine helps with muscle tension and reactivity, meaning that when the brain wants to prepare anger should also release dopamine in certain cirquits.  But I'm not completely sure about it.
-
-Comrade "Ж" Joshua, [17.10.16 08:41]
-[In reply to Pella Jiriya]
-I've noticed, you're clearly not an idiot
-
-Pella Jiriya, [17.10.16 08:42]
-[In reply to Comrade "Ж" Joshua]
-It's a thing I noticed dealing with psychologist and psychiatrist during my studies and personal life.
-
-Comrade "Ж" Joshua, [17.10.16 08:42]
-[In reply to Pella Jiriya]
-I'd think adrenalin is the main neurotransmitter  being released during anger since the body would be triggering a flight or fight response
-
-Comrade "Ж" Joshua, [17.10.16 08:43]
-[In reply to Pella Jiriya]
-I've sadly noticed it as well, psychologists tend to study what the brain does and not how it works
-
-Pella Jiriya, [17.10.16 08:44]
-[In reply to Comrade "Ж" Joshua]
-Sure but feelings like fear, anger, love, do release a huge amount of neurotransmitter. They release different concentrations in different areas of the brain.
-
-Milena, [17.10.16 08:44]
-You see guys, this is the right way to communicate 💖
-You are awesome, thank you for transcending it.
-
-Pella Jiriya, [17.10.16 08:45]
-[In reply to Milena]
-Internet trolls 😳 you should maybe pick up on that and the way they communicate
-
-Pella Jiriya, [17.10.16 08:45]
-Online communication is so much different than real life
-
-Comrade "Ж" Joshua, [17.10.16 08:46]
-[In reply to Pella Jiriya]
-Oh definitely, I'd be shocked if an emotion as stressful on the brain as anger only used one neurotransmitter but the point I was trying to make by bringing up dopamine in the first place was that the lower your dopamine levels the more likely you are to be upset
-
-Comrade "Ж" Joshua, [17.10.16 08:47]
-[In reply to Milena]
-Kein problem
-
-Pella Jiriya, [17.10.16 08:47]
-[In reply to Comrade "Ж" Joshua]
-I see ☺️
-
-Pella Jiriya, [17.10.16 08:48]
-Well my brain has a typical symptom of depression called morgentief in german. I have really bad mood in the morning
-
-Pella Jiriya, [17.10.16 08:48]
-Now is morning for me
-
-Milena, [17.10.16 08:48]
-[In reply to Pella Jiriya]
-Yes yes I know, I just don't follow their rules and I don't think that this kind of communication is good.
-
-Pella Jiriya, [17.10.16 08:48]
-[In reply to Milena]
-Why not? Is fun
-
-Milena, [17.10.16 08:48]
-[In reply to Pella Jiriya]
-Hahahaha
-
-Pella Jiriya, [17.10.16 08:48]
-And sparks interesting discussion
-
-Pella Jiriya, [17.10.16 08:49]
-[In reply to Milena]
-Not joke. Is almost clinical
-
-Comrade "Ж" Joshua, [17.10.16 08:49]
-[In reply to Pella Jiriya]
-Having trolled people before I can confirm that it's pretty fun
-
-Milena, [17.10.16 08:50]
-[In reply to Pella Jiriya]
-You see I'm spiritual, sooo I wouldn't say it's a healthy "fun" if this makes sense. But I have to hurry now maybe we can talk about that later. Have a beautiful day everyone :)
-
-Pella Jiriya, [17.10.16 08:50]
-Ok! Bye bye
-
-Pella Jiriya, [17.10.16 08:50]
 Does a natural or supernatural being considered divine or sacred (God or deity) exist?
 
 Yes – 42
-👍👍👍👍👍👍👍 39%
-
 I don't know – 20
-👍👍👍 18%
-
 No – 16
-👍👍👍 15%
-
 I don't care – 14
-👍👍 13%
-
 It both exist AND doesn't exist – 12
-👍👍 11%
-
 Others – 5
-👍 5%
-
 👥 109 people voted so far.
 
-Pella Jiriya, [17.10.16 08:51]
-[In reply to Pella Jiriya]
-I gotta go too, but I leave this for later
-
-Milena, [17.10.16 08:51]
-[In reply to Pella Jiriya]
-Nice thanks 👍
+###### What is love?
 
 Milena, [18.10.16 12:25]
 I would like to ask you guys a question. What do you think about Love. How would you describe it? What is it in your opinion? What is love and what isn't and why? 
 I believe there are many different ways to answer this question. I personally have a very spiritual view on this that many people usually don't share. So I'm interested to hear your opinion :)
 
-Pella Jiriya, [18.10.16 12:32]
-[In reply to Milena]
-http://www.youtube.com/watch?v=HEXWRTEbj1I
-
-Milena, [18.10.16 12:34]
-[In reply to Pella Jiriya]
-Awesome song haha thank you 😍
-
 Pella Jiriya, [18.10.16 12:38]
 Love is a feeling that runs between people. 
 There's many kind of love, from the maternal to the one that a desperate 13 yo girl has for Justin Bieber.
-
 Albeit those two are completely different humanity tends to categorize them with the word love.
-
 Love in general means that you would do anything for the other person, even the extreme sacrifice of giving your life to them.
-
 Love in my opinion happens only if the feeling is biunivoque, meaning love has to come from both sides, or is just a crush or an obsession.
 This is in contrast with many humans behavior but this allows me to define better what is love.
-
 Excluding all the monodirectional loves, the feeling assumes a fundamental in our society, and is a feeling of benevolence toward somebody special.
-
-Pella Jiriya, [18.10.16 12:39]
 Love between people in love (couple) assumes different forms, from the discovery phase to the boredom phase, there's many more and all are part of the faucet of a complicate feeling like love.
 
 Milena, [18.10.16 12:40]
@@ -789,7 +44,7 @@ Milena, [18.10.16 12:40]
 I think most people would agree with this. But I personally don't. I categorize this as "egoistic love", what people think that love is but in my opinion it's more something like attachment. I won't say more tho, I would like to hear more opinions first and every opinion is legit :)
 
 Milena, [18.10.16 12:41]
-[In reply to Pella Jiriya]
+[In reply to Pella Jiriya]-> which reply? damn you copy function of telegram desktop
 Yes it definitely includes a lot of forms and types.
 
 Milena, [18.10.16 12:42]
@@ -797,42 +52,29 @@ Another key word for me in this context is "unconditional love"
 
 Pella Jiriya, [18.10.16 12:44]
 The directinality of love is really important
-
-Pella Jiriya, [18.10.16 12:44]
 Imho
-
-Pella Jiriya, [18.10.16 12:44]
 And you can't love somebody who doesn't love you back
-
-Pella Jiriya, [18.10.16 12:44]
 That's not love
+
+###### What is love? /end
+
+###### What is Ego?
 
 Pella Jiriya, [18.10.16 12:44]
 [Forwarded from Spiritual Science Channel [INT] (Milena)]
 "Zero=infinity
-
 Space seems empty, yet it is jam packed with information. It has been discovered (Nassim Haramein) that the density of the vacuum has 10 to the 93 grams per centimeter cubed. 
-
 When your mind is empty, you'll find it too is jam packed with information. There is no difference between your mind and space... Ultimately, there is no difference between you and space other than the .000000001% particle fluctuation. The other 99.9999999% is space. We don't learn new things really. We just remember. Receive. You are and always with be the whole of creation. Silence the mind and remember."
 - Trevor James McGrath
 
 Pella Jiriya, [18.10.16 12:45]
 I think you copied some wrong measures here
-
-Pella Jiriya, [18.10.16 12:45]
 10 to the 93 g per cm3 is extremely dense
+Btw I would look to that with real a big care since we have limits on our metric system assuming the law of modern physics... and that measure smell of breaking them
 
 Milena, [18.10.16 12:45]
 [In reply to Pella Jiriya]
 I wouldn't agree. But ask yourself first who is I and who is someone? From a spiritual point of view this is not so easy to answer.
-
-Pella Jiriya, [18.10.16 12:47]
-[In reply to Pella Jiriya]
-Btw I would look to that with real a big care since we have limits on our metric system assuming the law of modern physics... and that measure smell of breaking them
-
-Milena, [18.10.16 12:48]
-[In reply to Pella Jiriya]
-Ok, I'm not an expert on this topic :) I believe the person who wrote it actually just wanted to show how everything is connected.
 
 Milena, [18.10.16 12:48]
 [In reply to Pella Jiriya]
@@ -841,14 +83,12 @@ Ok, I'm not an expert on this topic :) I believe the person who wrote it actuall
 Pella Jiriya, [18.10.16 12:48]
 [In reply to Milena]
 I, is what I define as I, you are what I define as you.
-
 People identify in themselves naturally and in general is corresponding to the physical represent of the self.
 
 Pella Jiriya, [18.10.16 12:50]
 [In reply to Milena]
 The boat of eratostene. It's something it will blow your mind then.
-
-Moreover bringing up a physical measure without meaning is terrible taste in an aphorism
+Moreover bringing up a physical measure without meaning is terrible taste in an aphorism.
 
 Milena, [18.10.16 12:50]
 [In reply to Pella Jiriya]
@@ -869,57 +109,30 @@ I'm searching for a nice article I posted on all this...
 Milena, [18.10.16 12:55]
 Ok Pella, since I can't find it right now I would like to mention the Ego as Part of your self. I believe that you identify with it a lot. 
 I can recommend a movie about the ego, it's called "Revolver".
-
-Milena, [18.10.16 12:58]
+Revolver Elevator Scene - Jake vs Jake
 https://youtu.be/VeW7T5Q5mhI
-
-Milena, [18.10.16 12:58]
+(Part 1 of 4) Lessons about destroying the ego/self from the film Revolver by Guy Ritchie.
 https://youtu.be/h9UCxRiTij0
-
-Milena, [18.10.16 12:59]
+(Part 2 of 4) Lessons about destroying the ego/self from the film Revolver by Guy Ritchie.
 https://youtu.be/AJtZdyldkFk
-
-James David, [18.10.16 13:00]
-Oh wow
-
-James David, [18.10.16 13:01]
 Revolver is an awesome movie.. when i watched it however i did not know it was about the Ego!!
-
-James David, [18.10.16 13:01]
-I ma seeing it in a new light and now it makes sese
-
-Milena, [18.10.16 13:02]
-[In reply to James David]
 Haha that movie is mind blowing!! You should have watched it longer, after it actually ends they describe what it was all about.
-
-Milena, [18.10.16 13:03]
+"Revolver" ego scene
 Here: https://youtu.be/hOEF1aOCLaE
 
 James David, [18.10.16 13:17]
-The scene where he is basically foghting himself.... oh my days ... i was watching that like what the hell is going on... oh how foolish i was then ha ha.. i thouth it was a Phyco Thriller and thats why it was so weired..
+The scene where he is basically fighting himself.... oh my days ... i was watching that like what the hell is going on... oh how foolish i was then ha ha.. i thought it was a Phyco Thriller and thats why it was so weired..
 
 Milena, [18.10.16 13:18]
 [In reply to James David]
 I have to laugh so hard about this 😂😂😂 I can totally see now why so many people have been that confused after watching the movie. It was criticized a lot because people where not getting it 😁
 
 James David, [18.10.16 13:26]
-Yes indeed
-
-James David, [18.10.16 13:26]
 I dont think anyone understood it... i did try once... someone did a metaphysics video about the movie
-
-James David, [18.10.16 13:26]
 But i wasnt that keen on Metaphysics then..
 
 Abdel Rahim Guemmat, [18.10.16 13:27]
 I'll notice you when I see it and I'll tell you my impression. Thanks!
-
-Milena, [18.10.16 13:38]
-[ ❤️ Sticker ]
-
-Milena, [22.10.16 11:18]
-[Forwarded from Spiritual Science Channel [INT] (Milena)]
-[ Photo ]
 
 Milena, [22.10.16 11:19]
 [In reply to Milena]
@@ -928,11 +141,7 @@ Since we were talking about this last time. There was still a lot of confusion a
 Pella Jiriya, [22.10.16 12:52]
 [In reply to Milena]
 I don't believe in a soul
-
-Pella Jiriya, [22.10.16 12:52]
 What I do now?
-
-Pella Jiriya, [22.10.16 12:52]
 I don't even know what a souls should be?
 
 Milena, [22.10.16 13:02]
