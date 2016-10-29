@@ -23,26 +23,26 @@ I'm personally completely in favor to this modifications. If somebody would disa
 
 ##The tongue piercing
 
-The tongue piercing, fairly easy to hide, can be sexy and discrete. Is a tongue piercing attractive? what is exactly attractiveness
-in our society? How do we measure it? Is the piercing sexy because is hidden? Is the piercing helping in oral sexual activities? 
-I think that answering these questions is critical to understand the piercing in our society.
-The piercing itself can be attractive for some people, other will find it disgusting. The fact that while speaking normally
-is not visible, helps those people who can't stand this piercing to accept it. 
+Tongue piercings, fairly easy to hide, can also be sexy and discrete. Is a tongue piercing attractive? What exactly is attractiveness
+in our society? How do we measure it? Is the piercing sexy because it is hidden? Does the piercing help with stimulation in oral sexual activities? 
+Answering these questions is critical to understand the piercing and its place in our society.
+The piercing itself is attractive for some people, but others will find it unattractive. The piercing's invisibility while speaking normally
+might help those who dislike this piercing to be more willing to accept it. 
 
 ![Image of Gauge piercing](https://em.wattpad.com/e1bfd2e513272e59b53f593674a9c956463ffd3f/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f677679626161374c6c30723176413d3d2d3239373836323137362e313436613834653837343135353861653137343932343836343739362e6a7067?s=fit&w=1280&h=1280)
 
 ##The stretching
 
-Piercings that dilate the wound to form a larger implant. Also called gauge piercing. The stretching can be acceptable,
-but many forms of it are regarded as disgusting from the rest of society. They are used in some tribal African cultures.
-How do we decide as a society what is acceptable in an absolute matter. The girl in the picture has the ear stretched although
-she appears as not only acceptable but also hot. This type of piercing can be socially acceptable.
-A group of people can accept this type of body modification without problems. Can the whole human society?
+Piercings that dilate the wound to form a larger implant are also called gauge piercing. The stretching can be acceptable,
+but many forms of it are regarded as unappealing to the rest of society. They are used in some tribal African cultures as a means of distinguishing status within the tribe.
+How do we decide as a society what is acceptable in an absolute matter? The girl in this picture has her ears stretched although
+she appears as not only acceptable to society, but also attractive. This type of piercing is generally socially acceptable.
+If a group of people can accept this type of body modification without problems, can the rest of society?
 Where do we trace the threshold? How do we define acceptability?
 
 Moreover there's piercings that are done in order to shock people and to show some kind of rebellion to the society standard.
-This kind of piercing is difficult to integrate in a acceptability context. 
+This kind of piercing is difficult to integrate in an acceptable context. 
 
-Somehow ears stretching piercing are better visually. Although this has probably strong cultural influence.
-So how do we define a socially acceptable law that will comprise which piercings are good or not and in which case?
+Somehow ears stretching piercing are better visually than some other piercings. This probably has some strong cultural influence.
+So how do we define a socially acceptable law that will determine which piercings are good or not and in which cases?
 
