@@ -38,6 +38,16 @@ Does a natural or supernatural being considered divine or sacred (God or deity) 
 
 > 109 people voted so far.
 
+- Yes – 46
+- I don't know – 20
+- No – 18
+- I don't care – 15
+- It both exist AND doesn't exist – 14
+- Others – 6
+
+> 119 people voted so far.
+
+
 ### Non informal poll about believing in a deity. /end
 #### Summary
 (under construction)
@@ -956,21 +966,21 @@ I think it was in that video
 10 Theories That Will Make You Lose Your Mind
 https://www.youtube.com/watch?v=Wc5N45K5zeQ
 
+
+
+### Infinity = 0 = 1 /end
+#### Summary
+(under contstruction)
+
+### What is reality
+
 Pella Jiriya, [22.10.16 18:07]
 [In reply to Milena]
 Ok, the thing makes sense but really you're assuming so many paradigms that let's be clear Milena you can't explain. So you technically are blindly believing in it. 
 Moreover I define the apple as one, not in hoe many pieces I can cut it up, and if I wanted to consider the wave ground state I would have done it in the premise. Now all in all the apple itself is one, can be an infinite and can be a zero, given some observational parameters.😑 but I can't put in a program coding 
 Apple = 1; and then expecting it to behave as an infinite or even as a zero. 
 It depends everything from the measuring conditions, said very well in the text brought by your friend.
-
-Pella Jiriya, [22.10.16 18:08]
-[In reply to Milena]
-Dont worry
-
-Pella Jiriya, [22.10.16 18:09]
 You're doing something fundamentally wrong.  You're looking for truths... truth doesn't exist, time is relative and reality exists only when we measure it and perceive it.
-
-Pella Jiriya, [22.10.16 18:09]
 When you hear 1 equals infinity equals zero, in you some kind of cosmic energy enters and you're there woah this concept blows my mind.
 
 Milena, [22.10.16 18:10]
@@ -991,8 +1001,6 @@ Truth doesn't 😑 cause truth is an utopic concept, and irrelevant to the reali
 Milena, [22.10.16 18:12]
 [In reply to Pella Jiriya]
 Like reality is an utopic concept
-
-Milena, [22.10.16 18:12]
 actually everything is just a concept
 
 Pella Jiriya, [22.10.16 18:12]
@@ -1064,8 +1072,6 @@ This depends on what you are doing with it. I would like to discuss your topic b
 Pella Jiriya, [22.10.16 18:19]
 [In reply to Milena]
 Uhm... I told you in the beginning. What you have are mere fantasies and maybe dreams that you hide behind something called philosophy. 😑
-
-Pella Jiriya, [22.10.16 18:19]
 I see in you me 5 years ago
 Exploring the 4 dimensions and the implications they have
 I explored them also mathematically making a 4 dimensional snake game
@@ -1092,14 +1098,6 @@ I'm afraid that your theories are bound with esoterism and I'm trying to make a 
 Milena, [22.10.16 18:29]
 But this is an eternal conversation anyway :) I appreciate that you are having it with me. I decided to try to address your needs and the level you want to talk about things more. So the next time we can talk about you ethical problem and later someday about why and how all is one.
 
-Milena, [22.10.16 18:29]
-[In reply to Pella Jiriya]
-Yes I understood that :)
-
-Milena, [22.10.16 18:30]
-[In reply to Pella Jiriya]
-Will try to help you more on that level
-
 Milena, [22.10.16 18:31]
 [In reply to Milena]
 and leave the rest out as far and long as possible, but I believe we can't get around it completly, because it's all correlated...but we will find a way 👍🏼
@@ -1113,13 +1111,11 @@ Milena, [22.10.16 19:40]
 [In reply to Pella Jiriya]
 Is it? Try to shift you focus and to find answers for the opposite.
 
-### Infinity = 0 = 1 /end discussion
+### What is reality /end
 ####Summary
 (under construction)
 
 ### Consciousness
-Chris Spurs, [22.10.16 20:04]
-Hey
 
 Chris Spurs, [22.10.16 20:04]
 I have been wondering, what are we really? A collection of atoms conscious of itself? How? When we die, does this collection of atoms still recognize itself? What is consciousness? 
@@ -1132,15 +1128,10 @@ Why should I even question it if I can't really prove it? Nor change it.
 Pella Jiriya, [22.10.16 20:23]
 [In reply to Chris Spurs]
 We are humans. We are composed, after the modern science, of strings, quark, leptons, cells, tissues, organs,...
-
 We concluded that the brain is responsible of our thoughts, from there thoughts are generated and affect how we move and interact with the environment. What is consciousness is a big question, I know that is in the prefrontal lobe of the brain, the biggest lobe Btw. We know is there because if you puncture it you lobotomize people.
 Now consciousness is a collection of thoughts, stored in neuronal circuits, that allow ourself to recognize what is ours, what is something else, where we can walk and not, what is right and wrong, ... Consciousness and how the brain work are really complex and not everything science can explain rn, here Milena can give you more information on what is possible.
-
 When we die what happens to our consciousness? Many are the interpretations, from the biblical ones showing an afterlife, the Indian and Buddhist giving space to a reincarnation, to the one analyzed by Philipp Pullman in the golden compass trilogy of going back and fuse with the nature itself, with the everything and realize of being part of it. 
-
 I personally am still trying to figure it out, but as far as is now is a mere philosophical question which have really no answer.
-
-Pella Jiriya, [22.10.16 20:27]
 A very wise old man said "death must be a beautiful place, because nobody ever came back!"
 
 Comrade "Ж" Joshua, [23.10.16 02:27]
@@ -1149,33 +1140,19 @@ Well... Exactly. Consciousness is in the brain so when the brain stops (death) d
 
 Milena, [23.10.16 11:56]
 I disagree. Consciousness is NOT created in the brain. The brain is already the creation of consciousness since all matter is created by concsiousness (and simultaneously part of consciousness itself). Remember the holographic universe stuff etc. it all comes together to this conclusion. 
-
 I like to use the dream metaphor to make it easier to understand. If you dream you perceive yourself in a body and you identify with this body. You also experience yourself separate from all other "people" in you dream, but in reality they are all coming from your consciousness, there is no separation and you are not limited to your "physical" body, you are the one who created the "imagination" of it. And reality works pretty much the same. That's why I'm always trying to explain that who you really are is not limited to your ego, it's far beyond that! 
 Ok I know some of you might want to disagree on this but try to think in a bigger concept and make some research on this. I have two articles that I found very quick for you, but you can find a ton more. 
-
 "“Looking for consciousness in the brain is like looking in the radio for the announcer.” – Nasseim Haramein, director of research for the Resonance Project
-
 “I regard consciousness as fundamental. I regard matter as derivative from consciousness. We cannot get behind consciousness. Everything that we talk about, everything that we regard as existing, postulates consciousness.”  –  Max Planck, theoretical physicist who originated quantum theory, which won him the Nobel Prize in Physics in 1918
-
 “It was not possible to formulate the laws of quantum mechanics in a fully consistent way without reference to consciousness.”  Eugene Wigner, theoretical physicist and mathematician. He received a share of the Nobel Prize in Physics in 1963
-
 "... the universe begins to look more like a great thought than like a great machine. Mind no longer appears to be an accidental intruder into the realm of matter, we ought rather hail it as the creator and governor of the realm of matter. Get over it, and accept the inarguable conclusion. The universe is immaterial-mental and spiritual.”  – R.C. Henry,Professor of Physics and Astronomy at Johns Hopkins University ,  “The Mental Universe”" 
-
 http://www.collective-evolution.com/2014/11/11/consciousness-creates-reality-physicists-admit-the-universe-is-immaterial-mental-spiritual/
-
 And here:
 http://www.livescience.com/53791-what-is-consciousness.html
 
 Pella Jiriya, [23.10.16 12:33]
-Uh....
-
-Pella Jiriya, [23.10.16 12:33]
 First of all this doesn't explain lobotomy at all.
-
-Pella Jiriya, [23.10.16 12:34]
 Doesn't explain the obliteration of consciousness after the brain is damaged
-
-Pella Jiriya, [23.10.16 12:34]
 So yes every thoughts generates in the brain
 
 Milena, [23.10.16 12:35]
@@ -1200,117 +1177,58 @@ And a lobotomy or mental illness or whatever is the same like destroying a radio
 Pella Jiriya, [23.10.16 12:42]
 Moreover the citation you bring by those great scientists are basically true.
 But is different than the meaning that you plaster to it.
-
 First of there's still a open debate about the need of a consciousness to create the universe and is due to fact about the consequciality of the random fluctuations of the space time fabric to create the universe. 
-
 Some people believe that there's a intent and a will that promote the creation of the universe, some others thinks is only the randomness.
 
 Pella Jiriya, [23.10.16 12:43]
 [In reply to Milena]
 But the announcer can't speak anymore then... and you can't see the announcer... so you end up again in a self contained problem where you can't demostrate that the announcer is there, neither you can demostrate is not there
-
-Pella Jiriya, [23.10.16 12:44]
 This is the big problem behind your philosophy.
-
-Pella Jiriya, [23.10.16 12:44]
 You take something, say there's something we can't demostrate behind it, and plan a theory built on that.
-
-Pella Jiriya, [23.10.16 12:48]
 I hate to break it to you... but first of all you assume there's a right way to interpret things, when there's at least 2 ways to interpret it.
-
 Second your way of choosing the right way is completely biased, and make sense in your mind, but not in all minds.
-
 Your interpretation moreover is strongly based on fantasy, non real facts, non tangible and non demostrable. 
-
 I can come up with other 5 theories that have the same values as yours with completely different morals.
-
-Pella Jiriya, [23.10.16 12:49]
 Again... why do I have to spend time to search for the announcer, when I can't proof is there?  I can't influence it, I can't interact with it. So why should I spend time and energy trying to see it?
-
-Pella Jiriya, [23.10.16 12:50]
 Btw I agree that in future we might be able to see it, right now we can't
-
-James David, [23.10.16 13:07]
-Guys, This convo is super frikin awesome..... just woke up and had my mind blown
-
-James David, [23.10.16 13:08]
-The Brain and Conciousness... how interesting..🤔
-
-James David, [23.10.16 13:09]
-Alwesome links melina.. oh and hi to everyone else. Pretty much new on here so happy to just learn..
-
-Shree Bhagwat, [23.10.16 13:37]
-Hey guys
-
-Shree Bhagwat, [23.10.16 13:38]
-Hey Pella how's you
-
-Shree Bhagwat, [23.10.16 13:38]
-After long time
-
-Pella Jiriya, [23.10.16 15:34]
-Hey Shree! I'm good!
 
 Milena, [23.10.16 15:37]
 [In reply to Pella Jiriya]
 Ok you are right. If you want to know and understand only what you see then yes, you could say it's not there when you don't see it. It's definitely not the way I  think about it but I agree that many do. But as much as I try to address your level of perception I still can't be a completely different person than I am. So I will deal with the way you see things and you will sometimes have to deal with the way I see them. I also agree when you say that I assume that there is one right way and I'm honest with you, I do and I believe in one universal truth, but I shouldn't force it onto others and part of this truth also is that all is true to someone. So try to see everything I say as theory, you can take what you like and ignore the rest if you want. Unfortunately i won't have much time to have proper discussions the next few weeks, so I will be just throwing in some information every now and then, sorry for that in advance.
-
-Milena, [23.10.16 15:45]
-[In reply to Pella Jiriya]
 You see and this is where you are wrong and why I told you that you need to connect to your soul more. You can interact with this consciousness, you can also operate through it and basically you can change absolutely the whole reality, yes even the collective, by doing so. But it is pretty difficult and as long as you are not open to it and can't even see how it would benefit your life too it's not gonna happen. But the funny thing is that you are asking those questions because unconsciously you know that it is exactly what you need and desire... But your ego conscious mind tells you differently ^^ no matter what you decide tho and which path you choose it will be always the right decision for you and your soul. 
 And this group is really not meant to discuss only "what we can see or measure", therefore there are a lot of other groups on Telegram 😅 So please excuse me and others when some "fantastic" subjects and theories are brought up, since your way of thinking about all that is also just one of many options ;)
 
-Milena, [23.10.16 15:45]
-[In reply to Pella Jiriya]
-[ 👍 Sticker ]
+### Consciousness /end
+####Summary
+(under construction)
 
-Abdel Rahim Guemmat, [23.10.16 15:53]
-[ 👌 Sticker ]
-
+### Religion
 Pella Jiriya, [23.10.16 16:07]
 [In reply to Milena]
 I like how you think! Truly! And I love your explanations, you are very well informed, and you express your way in a very nice way, without imposing. 
-
 I have an idea, I have a
 Something I want to bring forward. I want to create a new religion!
-
 I want to create a modern religion, what I want to do is a humongous project. I'm not sure I'll be able to do it.
 I want to introduce, rythes, traditions, common guidelines, and build basically everything from scratch.
-
 I came to the realization that religions are good and influence the thought and life of many people! Although the 3 Abrahamic religions have something very wrong in them. They are based on the interpretation of a book or series of books written ages ago.
 The principle that are written in those books were life changer and saver in the antiquity but in modern times have lost most of the significance.
-
 We need new and modern concept and we need a dynamic book, something like Wikipedia that constantly evolves to be at the pair of times.
-
 My objective is also the one to create something that everyone can agree upon, something fundamental to the human specie. 
 Thus I don't completely discard your hypothesis, which are nice and colorful. But the project needs to be wider, including all the paths, not just one, the book must analyze concretely the human behavior and have take home message that are good for each one of us. 
-
 This is why I want to keep it human centric, it will be a religion made by humans, for the humans.
-
 The day we will encounter extraterrestrial we will have to change dramatically the religion, but now the most important to me is humanity and the progress as a specie!
 
 Milena, [23.10.16 16:16]
 [In reply to Pella Jiriya]
 You are awesome too, I really support your idea :) I had an interesting vision based on this, I will tell you, wait a sec
 
-Milena, [23.10.16 16:23]
-[ Voice message ]
-
 James David, [23.10.16 16:25]
 Yeah why would anyone want to start neu religion?
-
-James David, [23.10.16 16:28]
 I dunno, religion just doesnt resonate well with me.. however  nevertheless, if you feel you can do it... then go for it.. 😀 you may bring something new into the world.. who knows? We never will untill you do it
 
 Pella Jiriya, [23.10.16 16:34]
 [In reply to Milena]
 Yes I agree, I will focus on specific questions while building the religion, I love also to discuss the fundamentals and your contrasting opinion helps me to realize and take a shape to the thought!
-
-Dunamis, [23.10.16 16:41]
-Dunamis:
-Dear friends,  I need this book in pdf format.  Thanls
-
-THE BOOK OF MYSTERIES BY JONATHAN CAHN
 
 Pella Jiriya, [23.10.16 16:42]
 [In reply to Milena]
@@ -1321,18 +1239,14 @@ But even in your spiritual awekening you admit that everything is a matter of pe
 
 Chemically water is H2O, but socially many types of things are referred as water, something flowing in a river. The crystalline water of a mountain lake and the turbid water of the Amazon river,  the salty water of the ocean, and the water stored in a pet bottle. As you can see there's no real truth behind what is really water! 
 There's people that have the job to taste water like wine, depending on the ion concentration water changes taste, but wait... water in chemistry is tasteless, how can this be?
-
 This multitude of definitions, is what I want to try to make them into a comprehensive text that will guide us through them.
-
 I don't discard any hypothesis although I don't want to collapse my brain quantum waves into one single definition!
 
 Pella Jiriya, [23.10.16 16:46]
 [In reply to James David]
 I tell you why and what pushed me to create one.
 I'm an individualist, and I started to detach from the religion I was brought up with when I was about 16-20.
-
 "Religion is a cultural system of behaviors and practices, world views, sacred texts, holy places, ethics, and societal organisation that relate humanity to what an anthropologist has called "an order of existence"."
-
 This is the Wikipedia definition of religion. As you can see there's nothing defined as dogmatic, divine, and the major religion of today are a subset of this definition. Religion brings a stygma of being bigot and closed, but in the definition of it nothing in this way is really stated.
 
 Milena, [23.10.16 17:10]
@@ -1346,25 +1260,15 @@ That is what I'm really not sure about. Most of the religions bring the concept 
 Milena, [23.10.16 18:56]
 [In reply to Pella Jiriya]
 Yes and that's why I'm constantly saying that the universe is paradox and that opposites aren't "real"
-
-Milena, [23.10.16 18:56]
 But one thing that pops up in every religion is the golden rule
-
-Milena, [23.10.16 18:57]
-[ Photo ]
 
 Pella Jiriya, [23.10.16 20:27]
 It's the most dangerous sentence ever said
-
-Pella Jiriya, [23.10.16 20:27]
 And doesn't apply to a sadist or a masochist 😂
 
 Comrade "Ж" Joshua, [23.10.16 20:31]
 [In reply to Pella Jiriya]
 Or someone who wants to die
-
-Leonard Greenpaw, [24.10.16 00:57]
-Hello
 
 Leonard Greenpaw, [24.10.16 01:00]
 I was referred to here by milena. She heard that I was also starting a scientific religion. I am curious to see how much we align
@@ -1376,18 +1280,9 @@ Exactly...
 Pella Jiriya, [24.10.16 02:06]
 [In reply to Leonard Greenpaw]
 OMG I'm about to really start a religion.
-
-Pella Jiriya, [24.10.16 02:07]
 I didn't do much yet, I just have a wattpad account
-
-Pella Jiriya, [24.10.16 02:07]
 https://www.wattpad.com/user/AnonymousPastor
-
-Pella Jiriya, [24.10.16 02:07]
 this is just the beginning tbh
-
-Eryk (Arunajinabadva), [24.10.16 04:57]
-Om Prem my glipglops
 
 Leonard Greenpaw, [24.10.16 06:00]
 [In reply to Pella Jiriya]
@@ -1396,10 +1291,6 @@ Were you the one starting the religion?
 Leonard Greenpaw, [24.10.16 06:04]
 [In reply to Pella Jiriya]
 Yes you are the person I heard about. Please feel free to preach to me your teachings. Lets start with what I always get asked about my religion. Whats your diety?
-
-Milena, [24.10.16 07:42]
-[In reply to Eryk (Arunajinabadva)]
-Aaaah Eryk 🙏 welcome friend 💓
 
 James David, [24.10.16 14:04]
 Do you have a name in mind for your new religion...
@@ -1413,100 +1304,34 @@ Pella Jiriya, [24.10.16 14:09]
 [In reply to James David]
 Me? Not really, I called it Schrödinger religion, because of the duality of existence of a deity. Vexanesim because they analyze in the movie the presence and non presence at the same time of something.
 I called if pellanesim since I'm the only follower, I wanted to call it ratio, from rationalism, but rationalism brought to extreme is dangerous and counterproductive.
-
-Pella Jiriya, [24.10.16 14:13]
 I wanted it to be an atheist religion, but I have to recognize that some people need the presence of a deity. Since one of the fundamental objectives of my religion would be coexistence I can't exclude a priori the presence of a deity. 
-
 Moreover it's impossible to demostrate the presence of a deity but also impossible to demonstrate the absence. Thus my conclusion of the existence and non existence at the same time.
-
-Pella Jiriya, [24.10.16 14:13]
 Does a natural or supernatural being considered divine or sacred (God or deity) exist?
-
-Yes – 46
-👍👍👍👍👍👍👍 39%
-
-I don't know – 20
-👍👍👍 17%
-
-No – 18
-👍👍👍 15%
-
-I don't care – 15
-👍👍 13%
-
-It both exist AND doesn't exist – 14
-👍👍 12%
-
-Others – 6
-👍 5%
-
-👥 119 people voted so far.
-
-Pella Jiriya, [24.10.16 14:15]
-[In reply to Pella Jiriya]
 In this non significant poll we can see that there's still a lot of people who say that it exist or don't know if it exists.
-
 Being upfront atheist would be completely wrong, since my religion wants to be for humanity, the religion can't simply ignore the basic human need for a deity!
 
 Leonard Greenpaw, [24.10.16 16:50]
 I take a vastly different approach. My religion is anti theist. It says that whether or not a deity exists is not the right question, the right question is "so what?" 
 As you said the first question is unanswerable, in such cases I teach that we should evaluate the effects of all possible answers.
 Thankfully this is a yes or no. If no, then we are alone and have to do things ourselves and fix our own issues collectively speaking.... If yes, its the same because if a deity does exist it is a clockwork creator, that is to say he either doesn't care about us or doesn't have power over our reality. We see this as self evident with every single loss of life and the constant pain and suffering in this world at every moment. An amoral god doesn't deserve worship, it doesn't help worshipping a powerless god, and its a waste of time worshipping a god that isn't omniscient.
-
-
 Basically i take the 'problem of evil' exercise and come out with 'fuck god'
-
 As a result my religion teaches people to be their own gods, we have the greatest individual control over our lives and see should learn to embrace our individual and collective potential.
 
 Pella Jiriya, [24.10.16 18:31]
 [In reply to Leonard Greenpaw]
 Yet... faith gives the power to blow them self up, to WALK from France to Jerusalem
-
-Pella Jiriya, [24.10.16 18:31]
 Moreover some people feel the presence of God
-
-Pella Jiriya, [24.10.16 18:32]
 Is an innate need to recognize and require the presence of a higher order.
-
-Pella Jiriya, [24.10.16 18:32]
 If you want to make a religion for the people you can't ignore this feeling
-
-Pella Jiriya, [24.10.16 18:33]
 And I can tell you is present in at least 70% of the population, between agnostics and believers.
-
-Pella Jiriya, [24.10.16 18:34]
 So your reasonment commits a huge fallacy to trample over the innate desire to have a deity.
-
-Pella Jiriya, [24.10.16 18:35]
 I personally share your opinions, and I found a paradigm of life devoided from a deity. But I can't deny that my father who believes is worthy and brings valuable arguments to the presence of a God.
-
-Milena, [24.10.16 18:37]
-[ Photo ]
-
-Milena, [24.10.16 18:38]
-[ Photo ]
-
-Milena, [24.10.16 18:38]
-[ Photo ]
 
 Milena, [24.10.16 18:38]
 I think there are different definitions for "God"
 
-Pella Jiriya, [24.10.16 18:38]
-[In reply to Milena]
-> i am god
-
 Milena, [24.10.16 18:39]
 Kind of, yes. But God is rather the collective consciousness, not just the ego parts of it.
-
-Pella Jiriya, [24.10.16 18:41]
-[In reply to Milena]
-> Spiritual knower...
-
-> I know to not know
-
-Milena, [24.10.16 18:41]
-😂🙈
 
 Pella Jiriya, [24.10.16 18:42]
 [In reply to Milena]
@@ -1530,20 +1355,6 @@ Milena, [24.10.16 19:07]
 [In reply to Pella Jiriya]
 Yes yes that body thing again 🙈
 
-Comrade "Ж" Joshua, [24.10.16 19:15]
-[In reply to Pella Jiriya]
-Aaaaaaaaaaa
-
-Milena, [24.10.16 19:23]
-[In reply to Comrade "Ж" Joshua]
-It's just his weird sense of humor I think ^^ I have to admit that I was laughing 😂 so it's all fine
-
-Comrade "Ж" Joshua, [24.10.16 19:23]
-Haha I thought it was hilarious when I read it
-
-Milena, [24.10.16 19:24]
-Me too ^^
-
 Leonard Greenpaw, [24.10.16 23:07]
 [In reply to Pella Jiriya]
 We must have faith in ourselves to become that higher power. Let u's be in awe at the limits of our true potential
@@ -1559,31 +1370,20 @@ Aka the universe and everything
 Leonard Greenpaw, [24.10.16 23:13]
 [In reply to Pella Jiriya]
 Its like tau, tau is everything by definition
-
-Leonard Greenpaw, [24.10.16 23:13]
 Except tau isn't assumed to be conscious
-
-Leonard Greenpaw, [24.10.16 23:15]
-[In reply to Pella Jiriya]
 We are all parts of the greater whole, we are all connected in the web of time. This is what I think
-
-Leonard Greenpaw, [24.10.16 23:19]
-[In reply to Pella Jiriya]
 I believe in an objective truth of the universe that exists independent of an entities perception. If a tree falls in thewoods, does it make a sound? Yes it will still vibrate the air with a resonance that we call a sound
 We can only view this objective reality through the coloured lens of our subjective mind. It is a goal of science to try to determine what that raw reality looks like
 
 Pella Jiriya, [25.10.16 00:31]
 [In reply to Leonard Greenpaw]
 We can only view this objective reality through the coloured lens of our subjective mind. 
-
 This pretty much says why a fundamental truth, an objective truth is not existing. Since the only way we have to find it is through perception.
-
 The only thing we can do is trace a way to think that will allow us to have a high coherent reproducibility! (Like for example the scientific method)
 
 Leonard Greenpaw, [25.10.16 05:14]
 [In reply to Pella Jiriya]
 There is a difference between something being real but unable to be perceived, and  that thing not being real.
-
 Plus perception is only a variable the more directly you look at something, there are ways to look at something indirectly in order to more clearly see the objectivity of it.
 
 Pella Jiriya, [25.10.16 08:42]
@@ -1592,125 +1392,76 @@ Reality is s difficult concept
 
 david davidson, [25.10.16 09:47]
 Reality is what is, when you stop believing in, doesn't change. 
-
 -Philip K Dick
 
 Will, [25.10.16 10:20]
 Perception organs of your sense the reality you live in. 
 The mind organised and tries to make a reason for why things are the way they are, often discarding scientific evidence in its absence. 
-
 We try to make sense of our existence when there is none. Only a product of a few billion years of evolution which humans managed to by pass their limited survival time. 
-
 If there is even the slightest possibility that humans are the only organisms that made through the filtering mesh of lowest survival probability. Then it falls to us to defy our limits and turn into pioneers of an entirely new reality. 
 A battle is being fought and the odds are against us, be it energy efficiency, resource depletion or misuse , pollution , political quests for power for selfish reasons. The odds are against us. 
 And we are at the frontier of it all and responsibility falls on us to either have our species transcend into something entirely new or fade into oblivion. 
 Be gods or be gone.
-
-Will, [25.10.16 10:25]
 And as for why should we... 
 The answer is as simple as it gets.
 Because we can.
-
-Will, [25.10.16 10:43]
 Yes surely. 
 You can apply the same reasoning to degradation of society just because you can. 
 But do you really want your children or the future generations in a dystopia when instead you could be building them the playground to play they deserve to progress humanity. 
-
 Answering that you aren't going to be alive to see that won't work as you would become the scape goat for an entire civilization to blame for being myopic to only waste their lives as well as theirs.
-
-Will, [25.10.16 10:44]
 The rest is up to you gentleman.
-
-Milena, [25.10.16 10:56]
-[In reply to Leonard Greenpaw]
-💖
 
 Pella Jiriya, [25.10.16 11:17]
 [In reply to david davidson]
 Reality is a matter of perception. 
 The interaction with others builds reality, but we can never be sure.
-
 Like I can't demostrate that behind me the world isn't collapsing and rebuilding just before I turn.
-
 But someone else with an other perspective can tell you what's behind. But still it is limited to its perception.
-
 We can only try to build and try to explain reality with the most logical way possible.
-
 This human interaction might build the collective intellect that Milena is talking about. 
-
 Because through collectivism we can define a reality, a reality shared by many.
-
 Although we will never be able to construct an absolute reality, because we can't escape the human way to transmit information.
 
-Pella Jiriya, [25.10.16 11:19]
-[In reply to Will]
 "If there is even the slightest possibility that humans are the only organisms that made through the filtering mesh of lowest survival probability. "
-
 I really don't get this tbh.
 
 Will, [25.10.16 12:28]
 You see there have been extinctions throughout history. Some allocated to a specific geographical area some to an global extent. Somehow we have dodged one and are still living thanks to our opposable thumbs and intellect . 
-
 BUT the question is after we have built our selves a safe environment to live in what purpose do we serve because we have well surpassed our natural expiry date. 
-
 Now there are generally two sides of how we perceive humans and intelligence. 
-
 One is a spectrum which goes 
 Fish:apes :: apes : Humans :: humans : an extremely smart species accommodated to be tier 3 organisms. 
 There is a gradation here which is pretty reasonable but then Fermi paradox hits us in the face.
-
 Now the second one is more frightening because it proposes that humans are the embodiment of "shit we got lucky , what do we do now" 
 There are no smarter species because of how hostile the universe is to life, be it a human or other species. 
 Now if that probability is correct then our chances of survival were already low and we got the chance to do the best we can to pioneer whatever means we have to make life sustainable and possible. Which means making our consciousness a broader spread in the universe. 
-
 Basically , somehow we passe the filtration mesh for extinction of species and life and now are responsible for figuring out a way to life more enduring .
 
 Pella Jiriya, [25.10.16 12:48]
-Uhm
-
-Pella Jiriya, [25.10.16 12:48]
 The mean life span of a specie is 25 million year
-
-Pella Jiriya, [25.10.16 12:48]
 Homo sapiens is on earth by 2 millions
-
-Pella Jiriya, [25.10.16 12:49]
 Uhm I really have no idea what you're talking about
 
 Will, [25.10.16 12:50]
 We're having this conversation on a device which if you think about is basically magic.
-
-Will, [25.10.16 12:50]
 While everyone is busy surviving.
-
-Will, [25.10.16 12:50]
 We should be busy creating.
 
 Pella Jiriya, [25.10.16 12:51]
 Intellect gives us undoubtly a great adaptation advantage... and allows us to colonize part of the world that are impossible with technology...
-
-Pella Jiriya, [25.10.16 12:51]
 We modify the environment to our advantage... like any other animal do
-
-Pella Jiriya, [25.10.16 12:51]
 Ants build huge ants nests
 
 Will, [25.10.16 12:51]
 Have you seen a giraffe build a skyscraper.
-
-Will, [25.10.16 12:51]
 I haven't.
 
 Pella Jiriya, [25.10.16 12:52]
 Isn't this the same as us building houses?
-
-Pella Jiriya, [25.10.16 12:52]
 Ants farm mushrooms like we herd sheep
 
 Will, [25.10.16 12:53]
 We are different from ants.
-
-Will, [25.10.16 12:53]
 We don't have to worry about survival in the first world countries out of fear to being in the food chain.
 
 Pella Jiriya, [25.10.16 12:53]
@@ -1725,9 +1476,6 @@ Nah... we still have to work to get money and food
 Will, [25.10.16 12:54]
 [In reply to Pella Jiriya]
 And that's why the obvious need to transcend into something allocating us into beings of superior motives. No longer restricted to boundaries of earth but universe itself.
-
-Will, [25.10.16 12:54]
-[In reply to Pella Jiriya]
 Yes. But it's work where you don't get killed immediately.
 
 Pella Jiriya, [25.10.16 12:55]
@@ -1735,10 +1483,6 @@ We have some concepts, like the self concept or the other perspective concept th
 
 Will, [25.10.16 12:55]
 If you want to be part of a archaic structure of surviving just for the sake of it.  Be my guest nothing stopping you.
-
-Pella Jiriya, [25.10.16 12:55]
-[In reply to Will]
-[ ❗️ Sticker ]
 
 Pella Jiriya, [25.10.16 12:55]
 I really don't get it.
@@ -1752,9 +1496,30 @@ We are nothing special tbh
 Will, [25.10.16 12:56]
 [In reply to Pella Jiriya]
 Maybe .
-
-Will, [25.10.16 12:56]
 Its a difference in opinion.
+
+
+
+
+
+
+
+## Continue here
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 Pella Jiriya, [25.10.16 12:57]
 Other animals given enough time could possibly develop our intellect or maybe an other paradigm...
