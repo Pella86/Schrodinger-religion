@@ -1394,6 +1394,11 @@ david davidson, [25.10.16 09:47]
 Reality is what is, when you stop believing in, doesn't change. 
 -Philip K Dick
 
+### Religion /end
+####Summary
+(under construction)
+
+### Are human specials
 Will, [25.10.16 10:20]
 Perception organs of your sense the reality you live in. 
 The mind organised and tries to make a reason for why things are the way they are, often discarding scientific evidence in its absence. 
@@ -1421,7 +1426,6 @@ We can only try to build and try to explain reality with the most logical way po
 This human interaction might build the collective intellect that Milena is talking about. 
 Because through collectivism we can define a reality, a reality shared by many.
 Although we will never be able to construct an absolute reality, because we can't escape the human way to transmit information.
-
 "If there is even the slightest possibility that humans are the only organisms that made through the filtering mesh of lowest survival probability. "
 I really don't get this tbh.
 
@@ -1498,29 +1502,6 @@ Will, [25.10.16 12:56]
 Maybe .
 Its a difference in opinion.
 
-
-
-
-
-
-
-## Continue here
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 Pella Jiriya, [25.10.16 12:57]
 Other animals given enough time could possibly develop our intellect or maybe an other paradigm...
 
@@ -1533,20 +1514,10 @@ We don't have really something that gives us a absolute evolutionary advantage, 
 Will, [25.10.16 12:58]
 That's what makes us special. 
 We have no survival advantage physically. In jungle we would die because we aren't adapted to it.
-
-Will, [25.10.16 12:59]
 We got lucky despite of us having the severe disadvantage.
-
-Will, [25.10.16 12:59]
 We have come far .. But we have a long way to go.
-
-Will, [25.10.16 12:59]
 That long way to go is what I am advocating for.
-
-Will, [25.10.16 13:00]
 And the whole impending doom about planetary destruction through comets or human efforts. It's what should drive us to explore other planets to inhabit.
-
-Will, [25.10.16 13:01]
 Don't hesitate to ask me to clear up on this. It's important to have this discussion.
 
 Pella Jiriya, [25.10.16 13:01]
@@ -1555,8 +1526,6 @@ This is absolutely not true. There's many primitive tribes in the Amazon forest 
 
 Will, [25.10.16 13:02]
 Physically speaking. Do we have any advantage that prevents us from being preys to predators on a natural hostile environment.
-
-Will, [25.10.16 13:02]
 Or have we built tools and civilizations to overcome that hurdle.
 
 Pella Jiriya, [25.10.16 13:02]
@@ -1568,8 +1537,6 @@ Will, [25.10.16 13:03]
 Yes. I agree on the emotional needs of humans. 
 But it is secondary . 
 Life precedes emotions.
-
-Will, [25.10.16 13:04]
 I am not devoting all of our resources to space exploration.
 
 Pella Jiriya, [25.10.16 13:04]
@@ -1580,8 +1547,6 @@ We run pretty fast, our body structure allows us to endure weeks without food, a
 Will, [25.10.16 13:04]
 [In reply to Pella Jiriya]
 Use instruments.why is that.
-
-Will, [25.10.16 13:05]
 And running fast. How far can we outfast a beast .
 
 Pella Jiriya, [25.10.16 13:05]
@@ -1590,15 +1555,7 @@ Cause we can 😃😂 monkey uses instruments, birds also, otter use stones to b
 
 Will, [25.10.16 13:05]
 Individually we don't have any advantage .
-
-Will, [25.10.16 13:05]
-[In reply to Pella Jiriya]
-Why can we.
-
-Will, [25.10.16 13:05]
 Does our intellect allows us to ..
-
-Will, [25.10.16 13:05]
 Or is there something else.
 
 Pella Jiriya, [25.10.16 13:06]
@@ -1616,11 +1573,7 @@ Both. Intellect playing the greater part.
 
 Pella Jiriya, [25.10.16 13:06]
 But this holds true for any animal?
-
-Pella Jiriya, [25.10.16 13:07]
 I'm not saying that we aren't in a way smarter than other animals.
-
-Pella Jiriya, [25.10.16 13:07]
 But we aren't special
 
 Will, [25.10.16 13:07]
@@ -1646,27 +1599,15 @@ And humanity developed in Africa... where having a thick fur might have been a d
 
 Will, [25.10.16 13:10]
 What about the species that moved to colder climatic regions.
-
-Will, [25.10.16 13:10]
 Shouldn't they have gotten the advantage of more body hair to provide better survival.
-
-Will, [25.10.16 13:10]
 Insulation
 
 Pella Jiriya, [25.10.16 13:12]
 [In reply to Will]
 To tell you the truth... the real function of our hairs on the body is still not well understood. So the max you can do is huge speculation
-
-Pella Jiriya, [25.10.16 13:13]
 For example some scientist proposed that the white fell of the polar bear, has more to do with sun ray absorbance more than mimetism
-
-Pella Jiriya, [25.10.16 13:13]
 Now we don't know if the only hair function is to insulate
-
-Pella Jiriya, [25.10.16 13:14]
 And we don't exactly know why we lost hair.
-
-Pella Jiriya, [25.10.16 13:14]
 Might be due to insulation
 
 Will, [25.10.16 13:14]
@@ -1680,8 +1621,6 @@ That's all this is. Maybe it's gods great plan. Maybe it's we are in a simulatio
 
 Pella Jiriya, [25.10.16 13:15]
 But keep in mind that humans traveled out of Africa with 5 waves, colonized Asia then came back to Europe
-
-Pella Jiriya, [25.10.16 13:16]
 The evolution might not be as linear as we think
 
 Pella Jiriya, [25.10.16 13:16]
@@ -1690,26 +1629,22 @@ Yes!! This is fundamental!
 
 Will, [25.10.16 13:17]
 We don't know shit.
-
-Will, [25.10.16 13:17]
 We are figuring out where we came from.
-
-Will, [25.10.16 13:17]
 That is the fundamental difference between humans and apes or any other species with a greater survival advantage.
 
 Pella Jiriya, [25.10.16 13:18]
 Now that we can believe to anything, what are the beliefs that make humanity progress forward to greater society? In my opinion we should keep it "real", concentrate ourselves with the common issue our society has rn.
-
 - multiculturalism
 - increased mobility 
 - distribution of wealth 
 - morality 
 - ecc.
 
-Pella Jiriya, [25.10.16 13:19]
-[In reply to Will]
-[ Photo ]
+### Are human specials /end
+####Summary
+(under construction)
 
+### Values
 Will, [25.10.16 13:20]
 Politics is boring once you figure out that you spend money to keep yourself in power and development is slow.
 
@@ -1760,23 +1695,15 @@ And i want coexistence instead of equality/equity which in my opinion is an utop
 
 Will, [25.10.16 13:24]
 Not all are born equal.
-
-Will, [25.10.16 13:25]
 You get the same resources ad everyone else. But you are handed the keys to the staircase.
 
 Pella Jiriya, [25.10.16 13:25]
 But fundamentally we are having the same thought.
-
 The love toward humanity!
 
 Will, [25.10.16 13:25]
 Walking up them is your job.
-
-Will, [25.10.16 13:25]
-[In reply to Pella Jiriya]
 Different fields. But yes. Both equally necessary.
-
-Will, [25.10.16 13:25]
 Politics isn't my cup of tea.
 
 Pella Jiriya, [25.10.16 13:27]
@@ -1792,26 +1719,17 @@ Equality gives to everyone the same support, equity helps people differently to 
 
 Will, [25.10.16 13:29]
 Don't hesitate. It's a genuine question.
-
-Will, [25.10.16 13:30]
-[In reply to Pella Jiriya]
 The same result. Expound on that for me.
 
 Pella Jiriya, [25.10.16 13:32]
 [In reply to Will]
 In that picture the end result is being able to watch the game 
-
 As a help is given a box to every one, regardless of the height of the person.
-
 While equity gives boxes considering the inherent human differences
 
 Will, [25.10.16 13:32]
 Yes. But why the need for the same result for everyone.
-
-Will, [25.10.16 13:33]
 Taking our examples.
-
-Will, [25.10.16 13:33]
 You would go into different field than me.
 
 Pella Jiriya, [25.10.16 13:33]
@@ -1819,37 +1737,17 @@ Questioning ourself about this concepts is for me practically more useful then d
 
 Will, [25.10.16 13:33]
 Providing the same tools. But notable all tools would be more important.
-
-Will, [25.10.16 13:33]
 Resources to differentiate into whatever you want. Instead of a one way path.
-
-Will, [25.10.16 13:34]
-[In reply to Pella Jiriya]
-Ikr. *bro high five*
-
-Pella Jiriya, [25.10.16 13:35]
-[In reply to Will]
-[ ✋ Sticker ]
 
 Will, [25.10.16 13:35]
 So what is your idea and criticism of mine.
 
 Pella Jiriya, [25.10.16 13:36]
 I don't have really an idea
-
-Pella Jiriya, [25.10.16 13:37]
 But I came to the conclusion that the sentence equal opportunity doesn't mean much
-
-Pella Jiriya, [25.10.16 13:37]
 I know what you mean ofc
-
-Pella Jiriya, [25.10.16 13:37]
 You want that people would have the same starting conditions.
-
-Pella Jiriya, [25.10.16 13:38]
 Although in practice, equal opportunity for me is not appliable because we aren't equal.
-
-Pella Jiriya, [25.10.16 13:39]
 But I also don't agree with equity, in a way that would create a differential resource management
 
 Will, [25.10.16 13:39]
@@ -1860,27 +1758,15 @@ So we need to kind of create an ad hoc system
 
 Will, [25.10.16 13:40]
 Equity initially is a bliss but turns into a blunder once people figure out a way for it to work in their advantage.
-
-Will, [25.10.16 13:41]
 Its a divergent path. But the end goal isn't the same for everyone because everyone is specialised to form and contemplate their own niche.
-
-Will, [25.10.16 13:42]
 Don't judge a fish for its ability to climb on a tree.
-
-Pella Jiriya, [25.10.16 13:42]
-[In reply to Will]
-This
 
 Pella Jiriya, [25.10.16 13:43]
 I think we should concentrate more on finding which niece each human fits more than giving everybody equal opportunity.
 
 Will, [25.10.16 13:44]
 Yes. Equal opportunity and resources.
-
-Will, [25.10.16 13:44]
 So you can fund yourself into becoming who you are into. But then again neuroplasticity plays a bigger role in this debate.
-
-Will, [25.10.16 13:44]
 Humans are adaptable.
 
 Pella Jiriya, [25.10.16 13:45]
@@ -1891,11 +1777,7 @@ Well. It does if not referring to the photo
 
 Pella Jiriya, [25.10.16 13:46]
 So you want everybody to technically be able to have the same opportunity.
-
-Pella Jiriya, [25.10.16 13:46]
 So you need to give a bit more to somebody with a disvantage
-
-Pella Jiriya, [25.10.16 13:46]
 While give less to somebody with an advantage
 
 Will, [25.10.16 13:46]
@@ -1907,20 +1789,12 @@ So you'll have equal opportunity, meaning equal potential for achievement
 Will, [25.10.16 13:47]
 Imagine it this way. There is a building for you. In that building there are multiple doors. 
 You are handed the keys to every one of them. And you have the liberty to go to the path that you like.
-
-Will, [25.10.16 13:48]
 But you would be given a test run for what the concepts behind the doors lie. And hence would be more educated to make a more rational judgement
 
 Pella Jiriya, [25.10.16 13:48]
 I have a broken leg.
-
-Pella Jiriya, [25.10.16 13:48]
 Should society provide a help to climb the stairs?
-
-Pella Jiriya, [25.10.16 13:49]
 Or be treated equal and give just the key and go fuck yourself?
-
-Pella Jiriya, [25.10.16 13:50]
 Is it really equal opportunity? If we give the cripple the same help as somebody healthy?
 
 Will, [25.10.16 13:51]
@@ -1937,47 +1811,17 @@ Help me understand better what you're trying to say here.
 
 Stefan, [25.10.16 13:54]
 Countries with higher social mobility are fairer and better
-
-Stefan, [25.10.16 13:55]
 They encourage effort, instead of using ties.
 
 Pella Jiriya, [25.10.16 13:57]
 [In reply to Will]
 Is it still equal opportunity, if you give all the keys to the rooms in the building to a healthy man and a man with a broken leg?  
-
 Wouldn't the healthy man be able to reach for more doors? Wouldn't the cripple be limited? Shall we as society compensate for this disability so that there will be equity?
-
-Stefan, [25.10.16 13:57]
-Bad analogy.
-
-Pella Jiriya, [25.10.16 13:57]
-Uhm?
-
-Pella Jiriya, [25.10.16 13:57]
-Is a continuation of he equal opportunity...
 
 Will, [25.10.16 13:58]
 My proposal was that we help people find their niches.
-
-Pella Jiriya, [25.10.16 13:58]
-[In reply to Will]
-This
-
-Pella Jiriya, [25.10.16 13:58]
-[In reply to Will]
-Here
-
-Will, [25.10.16 13:58]
 On what niche the functioning of the human is maximum an what he should opt for is what the doors represent.
-
-Pella Jiriya, [25.10.16 13:58]
-[In reply to Will]
-This is the analogy I expanded
-
-Will, [25.10.16 13:59]
 You have the ability to differentiate into any door given you like it and practise it enough.
-
-Will, [25.10.16 14:03]
 I hope I did a better job now.
 
 Pella Jiriya, [25.10.16 14:09]
@@ -1986,16 +1830,11 @@ Uhm I dont get it tho
 Will, [25.10.16 16:12]
 Oh okay. It's something like this. 
 Everyone should have the resources necessary to expound on their skillset which they desire.
-
-Will, [25.10.16 16:12]
 And hence would be differentiated and performing well as a member of society.
 
 Leonard Greenpaw, [25.10.16 16:29]
 [In reply to david davidson]
 Sounds simple enough to me :D
-
-Leonard Greenpaw, [25.10.16 16:32]
-[In reply to Will]
 I have made my religion to beat those odds. We shall grow to become masters of time and space, for we are how  the universe comes to know itself.
 
 Milena, [25.10.16 16:33]
@@ -2005,9 +1844,6 @@ https://www.newscientist.com/round-up/reality
 
 *disappears again*
 
-Milena, [25.10.16 16:33]
-[In reply to Leonard Greenpaw]
-🙌
 
 Will, [25.10.16 16:36]
 [In reply to Leonard Greenpaw]
@@ -2021,13 +1857,10 @@ In other words, the average of general perception is /highly likely/ to grow clo
 Leonard Greenpaw, [25.10.16 16:45]
 [In reply to Will]
 Thumbs, adaptability, but also what most people dont recognice, language. I beleive the evolutionary chage of the shifting location of the base of our tongues which enabled us to have a complex developed language which in turned enabled greater connections between people, especially for the purpose of spreading information deserve to be in the top three reasons we managed to somehow survive dispite our otherwise poorly designed bodies
-
 Mind to think of new ideas, tongue to spread new ideas, and thumbs to make those ideas into reality
 
 Will, [25.10.16 16:46]
 We learned to pass down information.
-
-Will, [25.10.16 16:46]
 Unlike our other primate peers
 
 Leonard Greenpaw, [25.10.16 16:46]
@@ -2037,6 +1870,34 @@ As such, I value increasing the connections between humans, we unlock the potent
 Leonard Greenpaw, [25.10.16 16:46]
 [In reply to Will]
 Exactly!
+
+
+
+
+
+
+
+
+
+
+
+
+# Continue here
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 Will, [25.10.16 16:47]
 What does the INT mean in the name of the chat.
