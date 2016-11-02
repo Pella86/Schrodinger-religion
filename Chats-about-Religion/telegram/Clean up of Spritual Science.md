@@ -1871,46 +1871,13 @@ Leonard Greenpaw, [25.10.16 16:46]
 [In reply to Will]
 Exactly!
 
+### Values /end
+#### Summary
+(under construction)
 
-
-
-
-
-
-
-
-
-
-
-# Continue here
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Will, [25.10.16 16:47]
-What does the INT mean in the name of the chat.
-
+### Communism, equality
 Leonard Greenpaw, [25.10.16 16:48]
 This is a connection beyond just our group of currently, it is a connection of our whole history, We right now are the sum of efforts, the sum of knowledge that has been started even far before the time of pythagorous
-
-Leonard Greenpaw, [25.10.16 16:48]
-I like you will, we are on the same page
-
-Leonard Greenpaw, [25.10.16 16:49]
-[In reply to Will]
-I sense a comrade! :D
 
 Leonard Greenpaw, [25.10.16 16:50]
 Down with the inate inequality and power struggle built into the capitalist system!
@@ -1926,22 +1893,9 @@ Welcome the post scarcity economy with the power of automation!
 Leonard Greenpaw, [25.10.16 16:51]
 We have the ability now, more than ever before!
 
-Milena, [25.10.16 16:53]
-[In reply to Leonard Greenpaw]
-💖
-
-Milena, [25.10.16 16:54]
-[In reply to Will]
-It stands for "international"
-
 Leonard Greenpaw, [25.10.16 16:54]
 The dominos of cause and effect are falling, we must push for a higher minimum wage, the proletariate must fight for their rights, this will make the capitalists progress automation because its more cost effective. The capitalists are priming the system of their downfall, but they are too blinded by greed. Please do continue making more people unemployeed. Please to develop more and more automated systems. Oh self check out? Automated cashier at fast food places? self driving vehicles? Yes fire more people. Soon so many people will be poor and unemployeed that revolution will happen and we will take back the means of production!
-
-Leonard Greenpaw, [25.10.16 16:55]
 You are the creators of your own demise!
-
-Leonard Greenpaw, [25.10.16 16:55]
-MWAHAHAHAHAHA
 
 Milena, [25.10.16 16:55]
 [In reply to Leonard Greenpaw]
@@ -1953,13 +1907,7 @@ Cant have a new system while the old one is in place, if capitalists are still i
 
 Leonard Greenpaw, [25.10.16 17:02]
 [In reply to Pella Jiriya]
-some animals
-
-Leonard Greenpaw, [25.10.16 17:02]
-[In reply to Pella Jiriya]
 Ants are such a beautiful display of communism at its best ❤️
-
-Leonard Greenpaw, [25.10.16 17:03]
 Behold the power of communism, when everyone is working together for the greater good, even the lowly ant has magnificent power!
 
 Leonard Greenpaw, [25.10.16 17:05]
@@ -1973,8 +1921,6 @@ Yes and to do so we must complete the connection of ourselves into the great web
 Leonard Greenpaw, [25.10.16 17:10]
 [In reply to Pella Jiriya]
 Not if we kill them all first by ruining the planet :D... wait no, thats a bad thing
-
-Leonard Greenpaw, [25.10.16 17:10]
 I want to teach chimps how to make fire, then release them into nature
 
 Leonard Greenpaw, [25.10.16 17:13]
@@ -1989,9 +1935,7 @@ Correct answeris that we are endurance runners, we can run for a longer time, a 
 Pella Jiriya, [25.10.16 17:25]
 [In reply to Leonard Greenpaw]
 The average is easily influenced, like in the past earth being in the middle of the universe seemed like the best average.
-
 You said something that I like but is fundamentally wrong. Science might be right on many fields, but is not absolute truth. Also science and thereby the scientific method are colored glass that allow us to see reality in a certain perspective.
-
 I think that the scientific method is the best approach as of now of describing a coherent reality but is not the only neither the most correct.
 
 Pella Jiriya, [25.10.16 17:26]
@@ -2053,7 +1997,6 @@ Pella Jiriya, [25.10.16 17:36]
 [In reply to Leonard Greenpaw]
 Incorrect on all counts
 > says all the correct things I said....
-
 Are you trolling?
 
 Leonard Greenpaw, [25.10.16 17:37]
@@ -2063,7 +2006,6 @@ Yes, yes it would, Earth as the collective living organisms is a 'live planet' a
 Pella Jiriya, [25.10.16 17:38]
 [In reply to Leonard Greenpaw]
 Lelz let's take self defined communist or strongly socialist economies and say they are not communist since we need a new definition of communism to make it work.
-
 In reality communism is an utopic concept, albeit promising on paper, it doesn't have any practical reality.
 
 Leonard Greenpaw, [25.10.16 17:39]
@@ -2084,7 +2026,6 @@ in other words no, you dont know what communism is
 Pella Jiriya, [25.10.16 17:42]
 [In reply to Leonard Greenpaw]
 Oh god those are technicalities that aren't inherent to the answer.  I meant endurance, with running fast, I'm sorry.
-
 I meant climbing trees to escape predators, not as a main motile purpose.
 Human have a long live span compared to other animals (rat, dog, cat,...) 
 Even with the very short life span that ranges from 25-50 years in the primitive humans is still longer 😑
@@ -2095,14 +2036,6 @@ Anyone who honestly thinks that any communism system, which prioritizes the well
 Pella Jiriya, [25.10.16 17:43]
 [In reply to Leonard Greenpaw]
 Ok explain your idea to me
-
-Leonard Greenpaw, [25.10.16 17:43]
-[In reply to Pella Jiriya]
-Is english your first language?
-
-Pella Jiriya, [25.10.16 17:43]
-[In reply to Leonard Greenpaw]
-Nope
 
 Will, [25.10.16 17:43]
 What and why are we debating about.
@@ -2121,12 +2054,7 @@ I have a lovely chart that shows capitalism, socialism, and communism side by si
 Pella Jiriya, [25.10.16 17:46]
 [In reply to Leonard Greenpaw]
 The guy said that is only our mind that gave us success. I gave physical features of human that contributed to our success.
-
 You can debate how many semantics you want... but I gave the guy an answer and you just confirmed it.
-
-Pella Jiriya, [25.10.16 17:46]
-[In reply to Leonard Greenpaw]
-Oook
 
 Will, [25.10.16 17:47]
 This conversation evolved into something of less practicality than information exchange.
@@ -2138,15 +2066,9 @@ Information is basic for developing concepts
 Will, [25.10.16 17:48]
 We aren't discarding wrongly held notions.
 
-Leonard Greenpaw, [25.10.16 17:49]
-[ Photo ]
-Ah it was in downloads, not in telegram's folder
-
 Pella Jiriya, [25.10.16 17:50]
 I don't agree in the human race being special in contrast to the other animals because we also follow many of the science designed rules.
-
 Moreover I think that humans are different so an equality is difficult to reach. Giving everybody the same would put people with a disadvantage in second place (if is right this goes toward social darwinism). I don't find either equity a good solutions since I'm convinced that not everybody can reach the same goal.
-
 A tailored solution has to be found like you, Will, said that we need to find individual niches.
 
 Pella Jiriya, [25.10.16 17:51]
@@ -2155,34 +2077,16 @@ Can you send it as a file?
 
 Leonard Greenpaw, [25.10.16 17:51]
 Eh some communism says everyone is the same, other communism says everyone is BORN the same, as in a blank slate
-
-Leonard Greenpaw, [25.10.16 17:52]
-[ File : photo_2016-06-18_13-10-41.jpg ]
-
-Leonard Greenpaw, [25.10.16 17:52]
-[In reply to Pella Jiriya]
-Communism wouls also say, you arent by default better than others just because you are rich
-
-Leonard Greenpaw, [25.10.16 17:53]
+Communism would also say, you arent by default better than others just because you are rich
 While other communists would say noone is better than anyone else, but everyone has  specialties, so they are not all the same, but are still equal in value
-
-Pella Jiriya, [25.10.16 17:54]
-[In reply to Leonard Greenpaw]
-[ Photo ]
 
 Leonard Greenpaw, [25.10.16 17:55]
 And others will say that all people have a minimum innate value, as in like all people are born with a right to live a peaceful life
 
-Leonard Greenpaw, [25.10.16 17:55]
-[In reply to Pella Jiriya]
-...... I dont even understand that joke
-
 Pella Jiriya, [25.10.16 17:56]
 [In reply to Leonard Greenpaw]
 Does he have an equal potential to the rest of humanity?  
-
 Is he born the same as others?
-
 What are he's specialities? Is his value equal to other humans?
 
 Leonard Greenpaw, [25.10.16 17:57]
@@ -2218,15 +2122,10 @@ It's a fundamental discussion about equality.
 
 Will, [25.10.16 18:01]
 I was referring to the debate about what's human's value
-
-Will, [25.10.16 18:01]
-[In reply to Pella Jiriya]
 Which is subjective.
 
 Pella Jiriya, [25.10.16 18:01]
 I don't think humans are all the same and have all the same potentiality and opportunities!
-
-Pella Jiriya, [25.10.16 18:02]
 This makes communism utopic
 
 💫, [25.10.16 18:02]
@@ -2241,10 +2140,6 @@ This is right tho, your welfare doesn't make you better than any other, although
 Pella Jiriya, [25.10.16 18:03]
 [In reply to 💫]
 How can you ignore biological inequalities when they determine the social status?
-
-Pella Jiriya, [25.10.16 18:04]
-[In reply to Pella Jiriya]
-[ 😧 Sticker ]
 
 Leonard Greenpaw, [25.10.16 18:04]
 [In reply to Pella Jiriya]
@@ -2263,17 +2158,12 @@ Gates, yes, that other guy not as much as you might think
 
 Pella Jiriya, [25.10.16 18:06]
 Also actors and movie directors, singers, and so on contribute culturally to the society.
-
 Do I like that Lindsey Lohan or Snooki have become rich? Nope but they had also a cultural contribution to society. Way more than me tbh
 
 Pella Jiriya, [25.10.16 18:06]
 [In reply to Leonard Greenpaw]
 Is the cell phone you're using, square with a multi touch function?
-
-Pella Jiriya, [25.10.16 18:07]
-*rectangular
-
-Pella Jiriya, [25.10.16 18:07]
+* rectangular
 If we want to get lost in semantics
 
 Leonard Greenpaw, [25.10.16 18:09]
@@ -2282,8 +2172,6 @@ Oh because rectangular device shape is such a breakthrough in technology?
 
 Will, [25.10.16 18:10]
 Yes .
-
-Will, [25.10.16 18:10]
 Touchscreen especially.
 
 Leonard Greenpaw, [25.10.16 18:10]
@@ -2353,295 +2241,6 @@ But you do you.
 Will, [25.10.16 18:33]
 So take your time.
 
-Pella Jiriya, [25.10.16 17:33]
-[In reply to Leonard Greenpaw]
-I've seen the application of communism and I'm really not impressed, from the Stalin Russia, mao china, north Korea,  China right now, the commune in Israel (kibbuz)...
-I don't really associate any of these with a real progress toward a modern, liberal society.
-
-Leonard Greenpaw, [25.10.16 17:33]
-cooperative goals, specialized indiiduals, division of labor
-
-Will, [25.10.16 17:34]
-Corrupted.
-
-Will, [25.10.16 17:34]
-Communism is to be implemented someplace better and islotaed
-
-Pella Jiriya, [25.10.16 17:35]
-[In reply to Leonard Greenpaw]
-Uhm... do you really think that the earth, the happy blue rock flying in the eclectic orbit would give a shit about a couple of million of species dying?
-
-Leonard Greenpaw, [25.10.16 17:35]
-[In reply to Pella Jiriya]
--yawn- Want to try naming a country that was actually communist?
-Bett yet, try defining communism, it seems like you dont know what the word means. 
-Meanwhile china russia and NK all have said they are nowhere near reaching communism even at their height
-
-Pella Jiriya, [25.10.16 17:36]
-[In reply to Leonard Greenpaw]
-Incorrect on all counts
-> says all the correct things I said....
-
-Are you trolling?
-
-Leonard Greenpaw, [25.10.16 17:37]
-[In reply to Pella Jiriya]
-Yes, yes it would, Earth as the collective living organisms is a 'live planet' as opposed to a dead planet devoid of life. Refering to its physical form as being its entirety is like saying if your body would care if I stab you in the brain, Most of your physical form will be pretty much fine, it just will cease living
-
-Pella Jiriya, [25.10.16 17:38]
-[In reply to Leonard Greenpaw]
-Lelz let's take self defined communist or strongly socialist economies and say they are not communist since we need a new definition of communism to make it work.
-
-In reality communism is an utopic concept, albeit promising on paper, it doesn't have any practical reality.
-
-Leonard Greenpaw, [25.10.16 17:39]
-[In reply to Pella Jiriya]
-You think endurance runnuing is the same as running fast?
-you think not being able to climb trees as the same as being able to climb trees?
-You think having a modified long lifespan is the same as having a naturally long lifespan?
-Its like you didnt even read
-
-Pella Jiriya, [25.10.16 17:39]
-[In reply to Leonard Greenpaw]
-There's been 5 mass estinction in the life of earth, the Cambrian one killed 200 million species... life itself survived and a while later had even bigger diversity than at the Cambrian...
-
-Leonard Greenpaw, [25.10.16 17:39]
-[In reply to Pella Jiriya]
-in other words no, you dont know what communism is
-
-Pella Jiriya, [25.10.16 17:42]
-[In reply to Leonard Greenpaw]
-Oh god those are technicalities that aren't inherent to the answer.  I meant endurance, with running fast, I'm sorry.
-
-I meant climbing trees to escape predators, not as a main motile purpose.
-Human have a long live span compared to other animals (rat, dog, cat,...) 
-Even with the very short life span that ranges from 25-50 years in the primitive humans is still longer 😑
-
-Leonard Greenpaw, [25.10.16 17:42]
-Anyone who honestly thinks that any communism system, which prioritizes the well being of the working class would support the working class being in slavery while the ruling elites get fat in palaces, is frankly someone I do not wish to waste my time arguing with
-
-Pella Jiriya, [25.10.16 17:43]
-[In reply to Leonard Greenpaw]
-Ok explain your idea to me
-
-Leonard Greenpaw, [25.10.16 17:43]
-[In reply to Pella Jiriya]
-Is english your first language?
-
-Pella Jiriya, [25.10.16 17:43]
-[In reply to Leonard Greenpaw]
-Nope
-
-Will, [25.10.16 17:43]
-What and why are we debating about.
-
-Leonard Greenpaw, [25.10.16 17:44]
-[In reply to Pella Jiriya]
-Oh ok, then I will excuse your mispeaking. Running fast and running far means very different things
-
-Pella Jiriya, [25.10.16 17:44]
-[In reply to Leonard Greenpaw]
-I don't think that a communism ideal of sharing resources and obliterating the notion of private propriety has any practical use in modern times. Unless you want to kill all the people that think and feel that capitalism is the way to go.
-
-Leonard Greenpaw, [25.10.16 17:45]
-I have a lovely chart that shows capitalism, socialism, and communism side by side, give me a moment to find it
-
-Pella Jiriya, [25.10.16 17:46]
-[In reply to Leonard Greenpaw]
-The guy said that is only our mind that gave us success. I gave physical features of human that contributed to our success.
-
-You can debate how many semantics you want... but I gave the guy an answer and you just confirmed it.
-
-Pella Jiriya, [25.10.16 17:46]
-[In reply to Leonard Greenpaw]
-Oook
-
-Will, [25.10.16 17:47]
-This conversation evolved into something of less practicality than information exchange.
-
-Pella Jiriya, [25.10.16 17:47]
-[In reply to Will]
-Information is basic for developing concepts
-
-Will, [25.10.16 17:48]
-We aren't discarding wrongly held notions.
-
-Leonard Greenpaw, [25.10.16 17:49]
-[ Photo ]
-Ah it was in downloads, not in telegram's folder
-
-Pella Jiriya, [25.10.16 17:50]
-I don't agree in the human race being special in contrast to the other animals because we also follow many of the science designed rules.
-
-Moreover I think that humans are different so an equality is difficult to reach. Giving everybody the same would put people with a disadvantage in second place (if is right this goes toward social darwinism). I don't find either equity a good solutions since I'm convinced that not everybody can reach the same goal.
-
-A tailored solution has to be found like you, Will, said that we need to find individual niches.
-
-Pella Jiriya, [25.10.16 17:51]
-[In reply to Leonard Greenpaw]
-Can you send it as a file?
-
-Leonard Greenpaw, [25.10.16 17:51]
-Eh some communism says everyone is the same, other communism says everyone is BORN the same, as in a blank slate
-
-Leonard Greenpaw, [25.10.16 17:52]
-[ File : photo_2016-06-18_13-10-41.jpg ]
-
-Leonard Greenpaw, [25.10.16 17:52]
-[In reply to Pella Jiriya]
-Communism wouls also say, you arent by default better than others just because you are rich
-
-Leonard Greenpaw, [25.10.16 17:53]
-While other communists would say noone is better than anyone else, but everyone has  specialties, so they are not all the same, but are still equal in value
-
-Pella Jiriya, [25.10.16 17:54]
-[In reply to Leonard Greenpaw]
-[ Photo ]
-
-Leonard Greenpaw, [25.10.16 17:55]
-And others will say that all people have a minimum innate value, as in like all people are born with a right to live a peaceful life
-
-Leonard Greenpaw, [25.10.16 17:55]
-[In reply to Pella Jiriya]
-...... I dont even understand that joke
-
-Pella Jiriya, [25.10.16 17:56]
-[In reply to Leonard Greenpaw]
-Does he have an equal potential to the rest of humanity?  
-
-Is he born the same as others?
-
-What are he's specialities? Is his value equal to other humans?
-
-Leonard Greenpaw, [25.10.16 17:57]
-[In reply to Pella Jiriya]
-are you saying because he is chinese or because that image makes him appear potentially mentally disabled?
-
-Pella Jiriya, [25.10.16 17:58]
-The fact he's down...
-
-Leonard Greenpaw, [25.10.16 17:59]
-he is down?
-
-Will, [25.10.16 17:59]
-It's just an opinion game now. 
-You think someone he thinks something else.
-
-Leonard Greenpaw, [25.10.16 18:00]
-[In reply to Will]
-I was stating the opinions common to communists, not neccissarily my own
-
-Pella Jiriya, [25.10.16 18:00]
-[In reply to Leonard Greenpaw]
-Can't be 100% sure but the facial features do point toward dawnism.
-I don't care if the guy in the picture is or not, I care about mentally challenged people. Are they equal to the other humans?
-
-Will, [25.10.16 18:01]
-[In reply to Leonard Greenpaw]
-Late message.
-
-Pella Jiriya, [25.10.16 18:01]
-[In reply to Will]
-It's a fundamental discussion about equality.
-
-Will, [25.10.16 18:01]
-I was referring to the debate about what's human's value
-
-Will, [25.10.16 18:01]
-[In reply to Pella Jiriya]
-Which is subjective.
-
-Pella Jiriya, [25.10.16 18:01]
-I don't think humans are all the same and have all the same potentiality and opportunities!
-
-Pella Jiriya, [25.10.16 18:02]
-This makes communism utopic
-
-💫, [25.10.16 18:02]
-[In reply to Pella Jiriya]
-There's a difference between social equality and biological equality, though. 
-If we're striving to acquire social equality, we should ignore the biological "inequalities" that we have.
-
-Pella Jiriya, [25.10.16 18:03]
-[In reply to Leonard Greenpaw]
-This is right tho, your welfare doesn't make you better than any other, although gives you more possibilities! And sometimes in capitalistic society the fact that one is rich correspond also to the contribution to the society
-
-Pella Jiriya, [25.10.16 18:03]
-[In reply to 💫]
-How can you ignore biological inequalities when they determine the social status?
-
-Pella Jiriya, [25.10.16 18:04]
-[In reply to Pella Jiriya]
-[ 😧 Sticker ]
-
-Leonard Greenpaw, [25.10.16 18:04]
-[In reply to Pella Jiriya]
-contribution to society? Haha no
-
-💫, [25.10.16 18:04]
-Feminism. It's when you ignore biological inequalities.
-
-Pella Jiriya, [25.10.16 18:04]
-[In reply to Leonard Greenpaw]
-Bill Gates and Steve Jobs contributed a lot to society and they have become rich.
-
-Leonard Greenpaw, [25.10.16 18:06]
-[In reply to Pella Jiriya]
-Gates, yes, that other guy not as much as you might think
-
-Pella Jiriya, [25.10.16 18:06]
-Also actors and movie directors, singers, and so on contribute culturally to the society.
-
-Do I like that Lindsey Lohan or Snooki have become rich? Nope but they had also a cultural contribution to society. Way more than me tbh
-
-Pella Jiriya, [25.10.16 18:06]
-[In reply to Leonard Greenpaw]
-Is the cell phone you're using, square with a multi touch function?
-
-Pella Jiriya, [25.10.16 18:07]
-*rectangular
-
-Pella Jiriya, [25.10.16 18:07]
-If we want to get lost in semantics
-
-Leonard Greenpaw, [25.10.16 18:09]
-[In reply to Pella Jiriya]
-Oh because rectangular device shape is such a breakthrough in technology?
-
-Will, [25.10.16 18:10]
-Yes .
-
-Will, [25.10.16 18:10]
-Touchscreen especially.
-
-Leonard Greenpaw, [25.10.16 18:10]
-Apple didn't invent touchscreen
-
-Will, [25.10.16 18:10]
-They didn't.
-
-Leonard Greenpaw, [25.10.16 18:10]
-And they didn't invent rectangles
-
-Will, [25.10.16 18:11]
-Rectangle touchscreen display with user friendly interface.
-
-Leonard Greenpaw, [25.10.16 18:13]
-Which part of that was them? They didn't invent rectangular devices or touch screens or revolutionize ui. And they weren't even the first people to have smart phones
-
-Leonard Greenpaw, [25.10.16 18:15]
-Plus jobs himself didn't even do that, the people that worked for him did. Sure you can try to say he enabled it, but enabling something isn't equal to being a genius inventor
-
-Will, [25.10.16 18:19]
-Don't know. Too much controversies. Too many sides to a story to make a solid judgement.
-
-Leonard Greenpaw, [25.10.16 18:20]
-My main point is that I want to see how many other people can do the same things with similar opprtunity
-
-Will, [25.10.16 18:20]
-[In reply to Leonard Greenpaw]
-There you go.
-
 Leonard Greenpaw, [25.10.16 18:21]
 If they did something obvious or something that is the natural progression of technology or if they did something that most people would do when given the same position, well then they arent some genius in my eyes
 
@@ -2681,6 +2280,9 @@ But you do you.
 Will, [25.10.16 18:33]
 So take your time.
 
+### Communism, equality /end
+#### Summary
+(under construction)
 
 
 
