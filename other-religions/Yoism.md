@@ -1,3 +1,4 @@
+#Yoism
 Yoism is a Open Source religion like this one.
 The same principles of societal contribuition and review are compelled.
 Yet the religion itself looks like a Wikipedia, even if the contributors don't want to use the system.
@@ -5,7 +6,7 @@ Yet the religion itself looks like a Wikipedia, even if the contributors don't w
 Many opinions will confluence in one single religion.
 Yet the Schrödinger religion will aim to have separate religion for each one of his members, and if at the end a common ground is found better so.
 
-The Yo:
+## The Yo:
 For example in your proof of Yo. You assert that:
 "This unseen world manifests as the collective, human, experiential world in a lawful, stable, and consistent manner that, as our knowledge advances, is increasingly predictable, is independent of any individual's wishes and biases, and outlasts our deaths or lapses in consciousness."
 
