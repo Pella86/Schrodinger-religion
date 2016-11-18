@@ -60,6 +60,8 @@ A person that wants to contribute to the religion can simply fork this repositor
 Technically the person who forked this repository is making his own religion on a new living branch.
 The person can in future decide to mix his thoughts with the mine and will ask me to fuse them, after a review process the modification might be implemented.
 
+[How to contribute] (https://github.com/Pella86/Schrodinger-religion/blob/43ec7ad9fc67ff8cf48d44d3fdfba80f345c8057/HowToContribute.md)
+
 ### Following the religion
 If you want to follow the budding Schrodiger religion (Pella86 branch) you can and you simply have to follow what is written on the text.
 
