@@ -1,7 +1,7 @@
 # Schrodinger-religion
 
 ## Religion and github
-This might be the first OpenSource religion ever created. The concept is simple, building a commuinty that will
+An OpenSource religion created with the power GitHub. The concept is simple, building a commuinty that will
 contribute to the religion itself.
 
 ## The premise

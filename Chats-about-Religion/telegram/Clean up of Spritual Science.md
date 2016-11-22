@@ -25,19 +25,6 @@ https://telegram.me/spiritscience
 
 ###### deleted a huge flame discussion about pming people.
 
-### Non informal poll about believing in a deity.
-
-Does a natural or supernatural being considered divine or sacred (God or deity) exist?
-
-- Yes – 42
-- I don't know – 20
-- No – 16
-- I don't care – 14
-- It both exist AND doesn't exist – 12
-- Others – 5
-
-> 109 people voted so far.
-
 ### Non informal poll about believing in a deity. /end
 #### Summary
 (under construction)
@@ -78,7 +65,31 @@ That's not love
 ### What is love? /end
 
 #### Summary:
-(under construction)
+Love is a mixture of feelings and sensations that human feels toward a person, a object or an ideology.
+
+Love is seen as a passion, and the general feeling of being able to do anything toward the loved entity.
+We can see love as an extreme form of altruism, were in some cases the cost outweight the benefits by much.
+
+- Unconditional love
+Unconditional love is fundamentally wrong if is intended toward one person or a restricted group of people.
+Unconditional love is dangerous because it doesn't allow people to change their mind upon change of the entity loved.
+Dynamism is a very good quality of humanity and we must keep it solid.
+
+- Romantic love
+I will concentrate now on describing the love between people that wants to share life together in a relationship.
+I am very strict in the definition of love, the feeling must come from both sides. 
+To borrow some math languge love is only defined if there's a bijective correlation between the people involved.
+I would also say surjectivity is fine,  since it's possible that one is "more" in love with the other.
+Yet one of the fundamentals must be that the love is reciprocate.
+
+The feeling we have for one person when we are in love, but the other person doesn't cosider us as object of love needs to be redefined with: crush or obsession.
+
+By setting this non individual form of love many categories of love fall behind.
+Example: the love a 13 yo has for Bieber, the love we have for someone who doesn't know us, or the romantic love toward a friend
+
+This can now set the development of relationship and love in a more comprehensive way.
+
+
 
 ### What is Ego?
 
@@ -956,21 +967,21 @@ I think it was in that video
 10 Theories That Will Make You Lose Your Mind
 https://www.youtube.com/watch?v=Wc5N45K5zeQ
 
+
+
+### Infinity = 0 = 1 /end
+#### Summary
+(under contstruction)
+
+### What is reality
+
 Pella Jiriya, [22.10.16 18:07]
 [In reply to Milena]
 Ok, the thing makes sense but really you're assuming so many paradigms that let's be clear Milena you can't explain. So you technically are blindly believing in it. 
 Moreover I define the apple as one, not in hoe many pieces I can cut it up, and if I wanted to consider the wave ground state I would have done it in the premise. Now all in all the apple itself is one, can be an infinite and can be a zero, given some observational parameters.😑 but I can't put in a program coding 
 Apple = 1; and then expecting it to behave as an infinite or even as a zero. 
 It depends everything from the measuring conditions, said very well in the text brought by your friend.
-
-Pella Jiriya, [22.10.16 18:08]
-[In reply to Milena]
-Dont worry
-
-Pella Jiriya, [22.10.16 18:09]
 You're doing something fundamentally wrong.  You're looking for truths... truth doesn't exist, time is relative and reality exists only when we measure it and perceive it.
-
-Pella Jiriya, [22.10.16 18:09]
 When you hear 1 equals infinity equals zero, in you some kind of cosmic energy enters and you're there woah this concept blows my mind.
 
 Milena, [22.10.16 18:10]
@@ -991,8 +1002,6 @@ Truth doesn't 😑 cause truth is an utopic concept, and irrelevant to the reali
 Milena, [22.10.16 18:12]
 [In reply to Pella Jiriya]
 Like reality is an utopic concept
-
-Milena, [22.10.16 18:12]
 actually everything is just a concept
 
 Pella Jiriya, [22.10.16 18:12]
@@ -1064,8 +1073,6 @@ This depends on what you are doing with it. I would like to discuss your topic b
 Pella Jiriya, [22.10.16 18:19]
 [In reply to Milena]
 Uhm... I told you in the beginning. What you have are mere fantasies and maybe dreams that you hide behind something called philosophy. 😑
-
-Pella Jiriya, [22.10.16 18:19]
 I see in you me 5 years ago
 Exploring the 4 dimensions and the implications they have
 I explored them also mathematically making a 4 dimensional snake game
@@ -1092,14 +1099,6 @@ I'm afraid that your theories are bound with esoterism and I'm trying to make a 
 Milena, [22.10.16 18:29]
 But this is an eternal conversation anyway :) I appreciate that you are having it with me. I decided to try to address your needs and the level you want to talk about things more. So the next time we can talk about you ethical problem and later someday about why and how all is one.
 
-Milena, [22.10.16 18:29]
-[In reply to Pella Jiriya]
-Yes I understood that :)
-
-Milena, [22.10.16 18:30]
-[In reply to Pella Jiriya]
-Will try to help you more on that level
-
 Milena, [22.10.16 18:31]
 [In reply to Milena]
 and leave the rest out as far and long as possible, but I believe we can't get around it completly, because it's all correlated...but we will find a way 👍🏼
@@ -1113,13 +1112,11 @@ Milena, [22.10.16 19:40]
 [In reply to Pella Jiriya]
 Is it? Try to shift you focus and to find answers for the opposite.
 
-### Infinity = 0 = 1 /end discussion
+### What is reality /end
 ####Summary
 (under construction)
 
 ### Consciousness
-Chris Spurs, [22.10.16 20:04]
-Hey
 
 Chris Spurs, [22.10.16 20:04]
 I have been wondering, what are we really? A collection of atoms conscious of itself? How? When we die, does this collection of atoms still recognize itself? What is consciousness? 
@@ -1132,15 +1129,10 @@ Why should I even question it if I can't really prove it? Nor change it.
 Pella Jiriya, [22.10.16 20:23]
 [In reply to Chris Spurs]
 We are humans. We are composed, after the modern science, of strings, quark, leptons, cells, tissues, organs,...
-
 We concluded that the brain is responsible of our thoughts, from there thoughts are generated and affect how we move and interact with the environment. What is consciousness is a big question, I know that is in the prefrontal lobe of the brain, the biggest lobe Btw. We know is there because if you puncture it you lobotomize people.
 Now consciousness is a collection of thoughts, stored in neuronal circuits, that allow ourself to recognize what is ours, what is something else, where we can walk and not, what is right and wrong, ... Consciousness and how the brain work are really complex and not everything science can explain rn, here Milena can give you more information on what is possible.
-
 When we die what happens to our consciousness? Many are the interpretations, from the biblical ones showing an afterlife, the Indian and Buddhist giving space to a reincarnation, to the one analyzed by Philipp Pullman in the golden compass trilogy of going back and fuse with the nature itself, with the everything and realize of being part of it. 
-
 I personally am still trying to figure it out, but as far as is now is a mere philosophical question which have really no answer.
-
-Pella Jiriya, [22.10.16 20:27]
 A very wise old man said "death must be a beautiful place, because nobody ever came back!"
 
 Comrade "Ж" Joshua, [23.10.16 02:27]
@@ -1149,33 +1141,19 @@ Well... Exactly. Consciousness is in the brain so when the brain stops (death) d
 
 Milena, [23.10.16 11:56]
 I disagree. Consciousness is NOT created in the brain. The brain is already the creation of consciousness since all matter is created by concsiousness (and simultaneously part of consciousness itself). Remember the holographic universe stuff etc. it all comes together to this conclusion. 
-
 I like to use the dream metaphor to make it easier to understand. If you dream you perceive yourself in a body and you identify with this body. You also experience yourself separate from all other "people" in you dream, but in reality they are all coming from your consciousness, there is no separation and you are not limited to your "physical" body, you are the one who created the "imagination" of it. And reality works pretty much the same. That's why I'm always trying to explain that who you really are is not limited to your ego, it's far beyond that! 
 Ok I know some of you might want to disagree on this but try to think in a bigger concept and make some research on this. I have two articles that I found very quick for you, but you can find a ton more. 
-
 "“Looking for consciousness in the brain is like looking in the radio for the announcer.” – Nasseim Haramein, director of research for the Resonance Project
-
 “I regard consciousness as fundamental. I regard matter as derivative from consciousness. We cannot get behind consciousness. Everything that we talk about, everything that we regard as existing, postulates consciousness.”  –  Max Planck, theoretical physicist who originated quantum theory, which won him the Nobel Prize in Physics in 1918
-
 “It was not possible to formulate the laws of quantum mechanics in a fully consistent way without reference to consciousness.”  Eugene Wigner, theoretical physicist and mathematician. He received a share of the Nobel Prize in Physics in 1963
-
 "... the universe begins to look more like a great thought than like a great machine. Mind no longer appears to be an accidental intruder into the realm of matter, we ought rather hail it as the creator and governor of the realm of matter. Get over it, and accept the inarguable conclusion. The universe is immaterial-mental and spiritual.”  – R.C. Henry,Professor of Physics and Astronomy at Johns Hopkins University ,  “The Mental Universe”" 
-
 http://www.collective-evolution.com/2014/11/11/consciousness-creates-reality-physicists-admit-the-universe-is-immaterial-mental-spiritual/
-
 And here:
 http://www.livescience.com/53791-what-is-consciousness.html
 
 Pella Jiriya, [23.10.16 12:33]
-Uh....
-
-Pella Jiriya, [23.10.16 12:33]
 First of all this doesn't explain lobotomy at all.
-
-Pella Jiriya, [23.10.16 12:34]
 Doesn't explain the obliteration of consciousness after the brain is damaged
-
-Pella Jiriya, [23.10.16 12:34]
 So yes every thoughts generates in the brain
 
 Milena, [23.10.16 12:35]
@@ -1200,117 +1178,58 @@ And a lobotomy or mental illness or whatever is the same like destroying a radio
 Pella Jiriya, [23.10.16 12:42]
 Moreover the citation you bring by those great scientists are basically true.
 But is different than the meaning that you plaster to it.
-
 First of there's still a open debate about the need of a consciousness to create the universe and is due to fact about the consequciality of the random fluctuations of the space time fabric to create the universe. 
-
 Some people believe that there's a intent and a will that promote the creation of the universe, some others thinks is only the randomness.
 
 Pella Jiriya, [23.10.16 12:43]
 [In reply to Milena]
 But the announcer can't speak anymore then... and you can't see the announcer... so you end up again in a self contained problem where you can't demostrate that the announcer is there, neither you can demostrate is not there
-
-Pella Jiriya, [23.10.16 12:44]
 This is the big problem behind your philosophy.
-
-Pella Jiriya, [23.10.16 12:44]
 You take something, say there's something we can't demostrate behind it, and plan a theory built on that.
-
-Pella Jiriya, [23.10.16 12:48]
 I hate to break it to you... but first of all you assume there's a right way to interpret things, when there's at least 2 ways to interpret it.
-
 Second your way of choosing the right way is completely biased, and make sense in your mind, but not in all minds.
-
 Your interpretation moreover is strongly based on fantasy, non real facts, non tangible and non demostrable. 
-
 I can come up with other 5 theories that have the same values as yours with completely different morals.
-
-Pella Jiriya, [23.10.16 12:49]
 Again... why do I have to spend time to search for the announcer, when I can't proof is there?  I can't influence it, I can't interact with it. So why should I spend time and energy trying to see it?
-
-Pella Jiriya, [23.10.16 12:50]
 Btw I agree that in future we might be able to see it, right now we can't
-
-James David, [23.10.16 13:07]
-Guys, This convo is super frikin awesome..... just woke up and had my mind blown
-
-James David, [23.10.16 13:08]
-The Brain and Conciousness... how interesting..🤔
-
-James David, [23.10.16 13:09]
-Alwesome links melina.. oh and hi to everyone else. Pretty much new on here so happy to just learn..
-
-Shree Bhagwat, [23.10.16 13:37]
-Hey guys
-
-Shree Bhagwat, [23.10.16 13:38]
-Hey Pella how's you
-
-Shree Bhagwat, [23.10.16 13:38]
-After long time
-
-Pella Jiriya, [23.10.16 15:34]
-Hey Shree! I'm good!
 
 Milena, [23.10.16 15:37]
 [In reply to Pella Jiriya]
 Ok you are right. If you want to know and understand only what you see then yes, you could say it's not there when you don't see it. It's definitely not the way I  think about it but I agree that many do. But as much as I try to address your level of perception I still can't be a completely different person than I am. So I will deal with the way you see things and you will sometimes have to deal with the way I see them. I also agree when you say that I assume that there is one right way and I'm honest with you, I do and I believe in one universal truth, but I shouldn't force it onto others and part of this truth also is that all is true to someone. So try to see everything I say as theory, you can take what you like and ignore the rest if you want. Unfortunately i won't have much time to have proper discussions the next few weeks, so I will be just throwing in some information every now and then, sorry for that in advance.
-
-Milena, [23.10.16 15:45]
-[In reply to Pella Jiriya]
 You see and this is where you are wrong and why I told you that you need to connect to your soul more. You can interact with this consciousness, you can also operate through it and basically you can change absolutely the whole reality, yes even the collective, by doing so. But it is pretty difficult and as long as you are not open to it and can't even see how it would benefit your life too it's not gonna happen. But the funny thing is that you are asking those questions because unconsciously you know that it is exactly what you need and desire... But your ego conscious mind tells you differently ^^ no matter what you decide tho and which path you choose it will be always the right decision for you and your soul. 
 And this group is really not meant to discuss only "what we can see or measure", therefore there are a lot of other groups on Telegram 😅 So please excuse me and others when some "fantastic" subjects and theories are brought up, since your way of thinking about all that is also just one of many options ;)
 
-Milena, [23.10.16 15:45]
-[In reply to Pella Jiriya]
-[ 👍 Sticker ]
+### Consciousness /end
+####Summary
+(under construction)
 
-Abdel Rahim Guemmat, [23.10.16 15:53]
-[ 👌 Sticker ]
-
+### Religion
 Pella Jiriya, [23.10.16 16:07]
 [In reply to Milena]
 I like how you think! Truly! And I love your explanations, you are very well informed, and you express your way in a very nice way, without imposing. 
-
 I have an idea, I have a
 Something I want to bring forward. I want to create a new religion!
-
 I want to create a modern religion, what I want to do is a humongous project. I'm not sure I'll be able to do it.
 I want to introduce, rythes, traditions, common guidelines, and build basically everything from scratch.
-
 I came to the realization that religions are good and influence the thought and life of many people! Although the 3 Abrahamic religions have something very wrong in them. They are based on the interpretation of a book or series of books written ages ago.
 The principle that are written in those books were life changer and saver in the antiquity but in modern times have lost most of the significance.
-
 We need new and modern concept and we need a dynamic book, something like Wikipedia that constantly evolves to be at the pair of times.
-
 My objective is also the one to create something that everyone can agree upon, something fundamental to the human specie. 
 Thus I don't completely discard your hypothesis, which are nice and colorful. But the project needs to be wider, including all the paths, not just one, the book must analyze concretely the human behavior and have take home message that are good for each one of us. 
-
 This is why I want to keep it human centric, it will be a religion made by humans, for the humans.
-
 The day we will encounter extraterrestrial we will have to change dramatically the religion, but now the most important to me is humanity and the progress as a specie!
 
 Milena, [23.10.16 16:16]
 [In reply to Pella Jiriya]
 You are awesome too, I really support your idea :) I had an interesting vision based on this, I will tell you, wait a sec
 
-Milena, [23.10.16 16:23]
-[ Voice message ]
-
 James David, [23.10.16 16:25]
 Yeah why would anyone want to start neu religion?
-
-James David, [23.10.16 16:28]
 I dunno, religion just doesnt resonate well with me.. however  nevertheless, if you feel you can do it... then go for it.. 😀 you may bring something new into the world.. who knows? We never will untill you do it
 
 Pella Jiriya, [23.10.16 16:34]
 [In reply to Milena]
 Yes I agree, I will focus on specific questions while building the religion, I love also to discuss the fundamentals and your contrasting opinion helps me to realize and take a shape to the thought!
-
-Dunamis, [23.10.16 16:41]
-Dunamis:
-Dear friends,  I need this book in pdf format.  Thanls
-
-THE BOOK OF MYSTERIES BY JONATHAN CAHN
 
 Pella Jiriya, [23.10.16 16:42]
 [In reply to Milena]
@@ -1321,18 +1240,14 @@ But even in your spiritual awekening you admit that everything is a matter of pe
 
 Chemically water is H2O, but socially many types of things are referred as water, something flowing in a river. The crystalline water of a mountain lake and the turbid water of the Amazon river,  the salty water of the ocean, and the water stored in a pet bottle. As you can see there's no real truth behind what is really water! 
 There's people that have the job to taste water like wine, depending on the ion concentration water changes taste, but wait... water in chemistry is tasteless, how can this be?
-
 This multitude of definitions, is what I want to try to make them into a comprehensive text that will guide us through them.
-
 I don't discard any hypothesis although I don't want to collapse my brain quantum waves into one single definition!
 
 Pella Jiriya, [23.10.16 16:46]
 [In reply to James David]
 I tell you why and what pushed me to create one.
 I'm an individualist, and I started to detach from the religion I was brought up with when I was about 16-20.
-
 "Religion is a cultural system of behaviors and practices, world views, sacred texts, holy places, ethics, and societal organisation that relate humanity to what an anthropologist has called "an order of existence"."
-
 This is the Wikipedia definition of religion. As you can see there's nothing defined as dogmatic, divine, and the major religion of today are a subset of this definition. Religion brings a stygma of being bigot and closed, but in the definition of it nothing in this way is really stated.
 
 Milena, [23.10.16 17:10]
@@ -1346,25 +1261,15 @@ That is what I'm really not sure about. Most of the religions bring the concept 
 Milena, [23.10.16 18:56]
 [In reply to Pella Jiriya]
 Yes and that's why I'm constantly saying that the universe is paradox and that opposites aren't "real"
-
-Milena, [23.10.16 18:56]
 But one thing that pops up in every religion is the golden rule
-
-Milena, [23.10.16 18:57]
-[ Photo ]
 
 Pella Jiriya, [23.10.16 20:27]
 It's the most dangerous sentence ever said
-
-Pella Jiriya, [23.10.16 20:27]
 And doesn't apply to a sadist or a masochist 😂
 
 Comrade "Ж" Joshua, [23.10.16 20:31]
 [In reply to Pella Jiriya]
 Or someone who wants to die
-
-Leonard Greenpaw, [24.10.16 00:57]
-Hello
 
 Leonard Greenpaw, [24.10.16 01:00]
 I was referred to here by milena. She heard that I was also starting a scientific religion. I am curious to see how much we align
@@ -1376,18 +1281,9 @@ Exactly...
 Pella Jiriya, [24.10.16 02:06]
 [In reply to Leonard Greenpaw]
 OMG I'm about to really start a religion.
-
-Pella Jiriya, [24.10.16 02:07]
 I didn't do much yet, I just have a wattpad account
-
-Pella Jiriya, [24.10.16 02:07]
 https://www.wattpad.com/user/AnonymousPastor
-
-Pella Jiriya, [24.10.16 02:07]
 this is just the beginning tbh
-
-Eryk (Arunajinabadva), [24.10.16 04:57]
-Om Prem my glipglops
 
 Leonard Greenpaw, [24.10.16 06:00]
 [In reply to Pella Jiriya]
@@ -1396,10 +1292,6 @@ Were you the one starting the religion?
 Leonard Greenpaw, [24.10.16 06:04]
 [In reply to Pella Jiriya]
 Yes you are the person I heard about. Please feel free to preach to me your teachings. Lets start with what I always get asked about my religion. Whats your diety?
-
-Milena, [24.10.16 07:42]
-[In reply to Eryk (Arunajinabadva)]
-Aaaah Eryk 🙏 welcome friend 💓
 
 James David, [24.10.16 14:04]
 Do you have a name in mind for your new religion...
@@ -1413,100 +1305,34 @@ Pella Jiriya, [24.10.16 14:09]
 [In reply to James David]
 Me? Not really, I called it Schrödinger religion, because of the duality of existence of a deity. Vexanesim because they analyze in the movie the presence and non presence at the same time of something.
 I called if pellanesim since I'm the only follower, I wanted to call it ratio, from rationalism, but rationalism brought to extreme is dangerous and counterproductive.
-
-Pella Jiriya, [24.10.16 14:13]
 I wanted it to be an atheist religion, but I have to recognize that some people need the presence of a deity. Since one of the fundamental objectives of my religion would be coexistence I can't exclude a priori the presence of a deity. 
-
 Moreover it's impossible to demostrate the presence of a deity but also impossible to demonstrate the absence. Thus my conclusion of the existence and non existence at the same time.
-
-Pella Jiriya, [24.10.16 14:13]
 Does a natural or supernatural being considered divine or sacred (God or deity) exist?
-
-Yes – 46
-👍👍👍👍👍👍👍 39%
-
-I don't know – 20
-👍👍👍 17%
-
-No – 18
-👍👍👍 15%
-
-I don't care – 15
-👍👍 13%
-
-It both exist AND doesn't exist – 14
-👍👍 12%
-
-Others – 6
-👍 5%
-
-👥 119 people voted so far.
-
-Pella Jiriya, [24.10.16 14:15]
-[In reply to Pella Jiriya]
 In this non significant poll we can see that there's still a lot of people who say that it exist or don't know if it exists.
-
 Being upfront atheist would be completely wrong, since my religion wants to be for humanity, the religion can't simply ignore the basic human need for a deity!
 
 Leonard Greenpaw, [24.10.16 16:50]
 I take a vastly different approach. My religion is anti theist. It says that whether or not a deity exists is not the right question, the right question is "so what?" 
 As you said the first question is unanswerable, in such cases I teach that we should evaluate the effects of all possible answers.
 Thankfully this is a yes or no. If no, then we are alone and have to do things ourselves and fix our own issues collectively speaking.... If yes, its the same because if a deity does exist it is a clockwork creator, that is to say he either doesn't care about us or doesn't have power over our reality. We see this as self evident with every single loss of life and the constant pain and suffering in this world at every moment. An amoral god doesn't deserve worship, it doesn't help worshipping a powerless god, and its a waste of time worshipping a god that isn't omniscient.
-
-
 Basically i take the 'problem of evil' exercise and come out with 'fuck god'
-
 As a result my religion teaches people to be their own gods, we have the greatest individual control over our lives and see should learn to embrace our individual and collective potential.
 
 Pella Jiriya, [24.10.16 18:31]
 [In reply to Leonard Greenpaw]
 Yet... faith gives the power to blow them self up, to WALK from France to Jerusalem
-
-Pella Jiriya, [24.10.16 18:31]
 Moreover some people feel the presence of God
-
-Pella Jiriya, [24.10.16 18:32]
 Is an innate need to recognize and require the presence of a higher order.
-
-Pella Jiriya, [24.10.16 18:32]
 If you want to make a religion for the people you can't ignore this feeling
-
-Pella Jiriya, [24.10.16 18:33]
 And I can tell you is present in at least 70% of the population, between agnostics and believers.
-
-Pella Jiriya, [24.10.16 18:34]
 So your reasonment commits a huge fallacy to trample over the innate desire to have a deity.
-
-Pella Jiriya, [24.10.16 18:35]
 I personally share your opinions, and I found a paradigm of life devoided from a deity. But I can't deny that my father who believes is worthy and brings valuable arguments to the presence of a God.
-
-Milena, [24.10.16 18:37]
-[ Photo ]
-
-Milena, [24.10.16 18:38]
-[ Photo ]
-
-Milena, [24.10.16 18:38]
-[ Photo ]
 
 Milena, [24.10.16 18:38]
 I think there are different definitions for "God"
 
-Pella Jiriya, [24.10.16 18:38]
-[In reply to Milena]
-> i am god
-
 Milena, [24.10.16 18:39]
 Kind of, yes. But God is rather the collective consciousness, not just the ego parts of it.
-
-Pella Jiriya, [24.10.16 18:41]
-[In reply to Milena]
-> Spiritual knower...
-
-> I know to not know
-
-Milena, [24.10.16 18:41]
-😂🙈
 
 Pella Jiriya, [24.10.16 18:42]
 [In reply to Milena]
@@ -1530,20 +1356,6 @@ Milena, [24.10.16 19:07]
 [In reply to Pella Jiriya]
 Yes yes that body thing again 🙈
 
-Comrade "Ж" Joshua, [24.10.16 19:15]
-[In reply to Pella Jiriya]
-Aaaaaaaaaaa
-
-Milena, [24.10.16 19:23]
-[In reply to Comrade "Ж" Joshua]
-It's just his weird sense of humor I think ^^ I have to admit that I was laughing 😂 so it's all fine
-
-Comrade "Ж" Joshua, [24.10.16 19:23]
-Haha I thought it was hilarious when I read it
-
-Milena, [24.10.16 19:24]
-Me too ^^
-
 Leonard Greenpaw, [24.10.16 23:07]
 [In reply to Pella Jiriya]
 We must have faith in ourselves to become that higher power. Let u's be in awe at the limits of our true potential
@@ -1559,31 +1371,20 @@ Aka the universe and everything
 Leonard Greenpaw, [24.10.16 23:13]
 [In reply to Pella Jiriya]
 Its like tau, tau is everything by definition
-
-Leonard Greenpaw, [24.10.16 23:13]
 Except tau isn't assumed to be conscious
-
-Leonard Greenpaw, [24.10.16 23:15]
-[In reply to Pella Jiriya]
 We are all parts of the greater whole, we are all connected in the web of time. This is what I think
-
-Leonard Greenpaw, [24.10.16 23:19]
-[In reply to Pella Jiriya]
 I believe in an objective truth of the universe that exists independent of an entities perception. If a tree falls in thewoods, does it make a sound? Yes it will still vibrate the air with a resonance that we call a sound
 We can only view this objective reality through the coloured lens of our subjective mind. It is a goal of science to try to determine what that raw reality looks like
 
 Pella Jiriya, [25.10.16 00:31]
 [In reply to Leonard Greenpaw]
 We can only view this objective reality through the coloured lens of our subjective mind. 
-
 This pretty much says why a fundamental truth, an objective truth is not existing. Since the only way we have to find it is through perception.
-
 The only thing we can do is trace a way to think that will allow us to have a high coherent reproducibility! (Like for example the scientific method)
 
 Leonard Greenpaw, [25.10.16 05:14]
 [In reply to Pella Jiriya]
 There is a difference between something being real but unable to be perceived, and  that thing not being real.
-
 Plus perception is only a variable the more directly you look at something, there are ways to look at something indirectly in order to more clearly see the objectivity of it.
 
 Pella Jiriya, [25.10.16 08:42]
@@ -1592,125 +1393,80 @@ Reality is s difficult concept
 
 david davidson, [25.10.16 09:47]
 Reality is what is, when you stop believing in, doesn't change. 
-
 -Philip K Dick
 
+### Religion /end
+####Summary
+(under construction)
+
+### Are human specials
 Will, [25.10.16 10:20]
 Perception organs of your sense the reality you live in. 
 The mind organised and tries to make a reason for why things are the way they are, often discarding scientific evidence in its absence. 
-
 We try to make sense of our existence when there is none. Only a product of a few billion years of evolution which humans managed to by pass their limited survival time. 
-
 If there is even the slightest possibility that humans are the only organisms that made through the filtering mesh of lowest survival probability. Then it falls to us to defy our limits and turn into pioneers of an entirely new reality. 
 A battle is being fought and the odds are against us, be it energy efficiency, resource depletion or misuse , pollution , political quests for power for selfish reasons. The odds are against us. 
 And we are at the frontier of it all and responsibility falls on us to either have our species transcend into something entirely new or fade into oblivion. 
 Be gods or be gone.
-
-Will, [25.10.16 10:25]
 And as for why should we... 
 The answer is as simple as it gets.
 Because we can.
-
-Will, [25.10.16 10:43]
 Yes surely. 
 You can apply the same reasoning to degradation of society just because you can. 
 But do you really want your children or the future generations in a dystopia when instead you could be building them the playground to play they deserve to progress humanity. 
-
 Answering that you aren't going to be alive to see that won't work as you would become the scape goat for an entire civilization to blame for being myopic to only waste their lives as well as theirs.
-
-Will, [25.10.16 10:44]
 The rest is up to you gentleman.
-
-Milena, [25.10.16 10:56]
-[In reply to Leonard Greenpaw]
-💖
 
 Pella Jiriya, [25.10.16 11:17]
 [In reply to david davidson]
 Reality is a matter of perception. 
 The interaction with others builds reality, but we can never be sure.
-
 Like I can't demostrate that behind me the world isn't collapsing and rebuilding just before I turn.
-
 But someone else with an other perspective can tell you what's behind. But still it is limited to its perception.
-
 We can only try to build and try to explain reality with the most logical way possible.
-
 This human interaction might build the collective intellect that Milena is talking about. 
-
 Because through collectivism we can define a reality, a reality shared by many.
-
 Although we will never be able to construct an absolute reality, because we can't escape the human way to transmit information.
-
-Pella Jiriya, [25.10.16 11:19]
-[In reply to Will]
 "If there is even the slightest possibility that humans are the only organisms that made through the filtering mesh of lowest survival probability. "
-
 I really don't get this tbh.
 
 Will, [25.10.16 12:28]
 You see there have been extinctions throughout history. Some allocated to a specific geographical area some to an global extent. Somehow we have dodged one and are still living thanks to our opposable thumbs and intellect . 
-
 BUT the question is after we have built our selves a safe environment to live in what purpose do we serve because we have well surpassed our natural expiry date. 
-
 Now there are generally two sides of how we perceive humans and intelligence. 
-
 One is a spectrum which goes 
 Fish:apes :: apes : Humans :: humans : an extremely smart species accommodated to be tier 3 organisms. 
 There is a gradation here which is pretty reasonable but then Fermi paradox hits us in the face.
-
 Now the second one is more frightening because it proposes that humans are the embodiment of "shit we got lucky , what do we do now" 
 There are no smarter species because of how hostile the universe is to life, be it a human or other species. 
 Now if that probability is correct then our chances of survival were already low and we got the chance to do the best we can to pioneer whatever means we have to make life sustainable and possible. Which means making our consciousness a broader spread in the universe. 
-
 Basically , somehow we passe the filtration mesh for extinction of species and life and now are responsible for figuring out a way to life more enduring .
 
 Pella Jiriya, [25.10.16 12:48]
-Uhm
-
-Pella Jiriya, [25.10.16 12:48]
 The mean life span of a specie is 25 million year
-
-Pella Jiriya, [25.10.16 12:48]
 Homo sapiens is on earth by 2 millions
-
-Pella Jiriya, [25.10.16 12:49]
 Uhm I really have no idea what you're talking about
 
 Will, [25.10.16 12:50]
 We're having this conversation on a device which if you think about is basically magic.
-
-Will, [25.10.16 12:50]
 While everyone is busy surviving.
-
-Will, [25.10.16 12:50]
 We should be busy creating.
 
 Pella Jiriya, [25.10.16 12:51]
 Intellect gives us undoubtly a great adaptation advantage... and allows us to colonize part of the world that are impossible with technology...
-
-Pella Jiriya, [25.10.16 12:51]
 We modify the environment to our advantage... like any other animal do
-
-Pella Jiriya, [25.10.16 12:51]
 Ants build huge ants nests
 
 Will, [25.10.16 12:51]
 Have you seen a giraffe build a skyscraper.
-
-Will, [25.10.16 12:51]
 I haven't.
 
 Pella Jiriya, [25.10.16 12:52]
 Isn't this the same as us building houses?
-
-Pella Jiriya, [25.10.16 12:52]
 Ants farm mushrooms like we herd sheep
 
 Will, [25.10.16 12:53]
 We are different from ants.
-
-Will, [25.10.16 12:53]
 We don't have to worry about survival in the first world countries out of fear to being in the food chain.
 
 Pella Jiriya, [25.10.16 12:53]
@@ -1725,9 +1481,6 @@ Nah... we still have to work to get money and food
 Will, [25.10.16 12:54]
 [In reply to Pella Jiriya]
 And that's why the obvious need to transcend into something allocating us into beings of superior motives. No longer restricted to boundaries of earth but universe itself.
-
-Will, [25.10.16 12:54]
-[In reply to Pella Jiriya]
 Yes. But it's work where you don't get killed immediately.
 
 Pella Jiriya, [25.10.16 12:55]
@@ -1735,10 +1488,6 @@ We have some concepts, like the self concept or the other perspective concept th
 
 Will, [25.10.16 12:55]
 If you want to be part of a archaic structure of surviving just for the sake of it.  Be my guest nothing stopping you.
-
-Pella Jiriya, [25.10.16 12:55]
-[In reply to Will]
-[ ❗️ Sticker ]
 
 Pella Jiriya, [25.10.16 12:55]
 I really don't get it.
@@ -1752,8 +1501,6 @@ We are nothing special tbh
 Will, [25.10.16 12:56]
 [In reply to Pella Jiriya]
 Maybe .
-
-Will, [25.10.16 12:56]
 Its a difference in opinion.
 
 Pella Jiriya, [25.10.16 12:57]
@@ -1768,20 +1515,10 @@ We don't have really something that gives us a absolute evolutionary advantage, 
 Will, [25.10.16 12:58]
 That's what makes us special. 
 We have no survival advantage physically. In jungle we would die because we aren't adapted to it.
-
-Will, [25.10.16 12:59]
 We got lucky despite of us having the severe disadvantage.
-
-Will, [25.10.16 12:59]
 We have come far .. But we have a long way to go.
-
-Will, [25.10.16 12:59]
 That long way to go is what I am advocating for.
-
-Will, [25.10.16 13:00]
 And the whole impending doom about planetary destruction through comets or human efforts. It's what should drive us to explore other planets to inhabit.
-
-Will, [25.10.16 13:01]
 Don't hesitate to ask me to clear up on this. It's important to have this discussion.
 
 Pella Jiriya, [25.10.16 13:01]
@@ -1790,8 +1527,6 @@ This is absolutely not true. There's many primitive tribes in the Amazon forest 
 
 Will, [25.10.16 13:02]
 Physically speaking. Do we have any advantage that prevents us from being preys to predators on a natural hostile environment.
-
-Will, [25.10.16 13:02]
 Or have we built tools and civilizations to overcome that hurdle.
 
 Pella Jiriya, [25.10.16 13:02]
@@ -1803,8 +1538,6 @@ Will, [25.10.16 13:03]
 Yes. I agree on the emotional needs of humans. 
 But it is secondary . 
 Life precedes emotions.
-
-Will, [25.10.16 13:04]
 I am not devoting all of our resources to space exploration.
 
 Pella Jiriya, [25.10.16 13:04]
@@ -1815,8 +1548,6 @@ We run pretty fast, our body structure allows us to endure weeks without food, a
 Will, [25.10.16 13:04]
 [In reply to Pella Jiriya]
 Use instruments.why is that.
-
-Will, [25.10.16 13:05]
 And running fast. How far can we outfast a beast .
 
 Pella Jiriya, [25.10.16 13:05]
@@ -1825,15 +1556,7 @@ Cause we can 😃😂 monkey uses instruments, birds also, otter use stones to b
 
 Will, [25.10.16 13:05]
 Individually we don't have any advantage .
-
-Will, [25.10.16 13:05]
-[In reply to Pella Jiriya]
-Why can we.
-
-Will, [25.10.16 13:05]
 Does our intellect allows us to ..
-
-Will, [25.10.16 13:05]
 Or is there something else.
 
 Pella Jiriya, [25.10.16 13:06]
@@ -1851,11 +1574,7 @@ Both. Intellect playing the greater part.
 
 Pella Jiriya, [25.10.16 13:06]
 But this holds true for any animal?
-
-Pella Jiriya, [25.10.16 13:07]
 I'm not saying that we aren't in a way smarter than other animals.
-
-Pella Jiriya, [25.10.16 13:07]
 But we aren't special
 
 Will, [25.10.16 13:07]
@@ -1881,27 +1600,15 @@ And humanity developed in Africa... where having a thick fur might have been a d
 
 Will, [25.10.16 13:10]
 What about the species that moved to colder climatic regions.
-
-Will, [25.10.16 13:10]
 Shouldn't they have gotten the advantage of more body hair to provide better survival.
-
-Will, [25.10.16 13:10]
 Insulation
 
 Pella Jiriya, [25.10.16 13:12]
 [In reply to Will]
 To tell you the truth... the real function of our hairs on the body is still not well understood. So the max you can do is huge speculation
-
-Pella Jiriya, [25.10.16 13:13]
 For example some scientist proposed that the white fell of the polar bear, has more to do with sun ray absorbance more than mimetism
-
-Pella Jiriya, [25.10.16 13:13]
 Now we don't know if the only hair function is to insulate
-
-Pella Jiriya, [25.10.16 13:14]
 And we don't exactly know why we lost hair.
-
-Pella Jiriya, [25.10.16 13:14]
 Might be due to insulation
 
 Will, [25.10.16 13:14]
@@ -1915,8 +1622,6 @@ That's all this is. Maybe it's gods great plan. Maybe it's we are in a simulatio
 
 Pella Jiriya, [25.10.16 13:15]
 But keep in mind that humans traveled out of Africa with 5 waves, colonized Asia then came back to Europe
-
-Pella Jiriya, [25.10.16 13:16]
 The evolution might not be as linear as we think
 
 Pella Jiriya, [25.10.16 13:16]
@@ -1925,26 +1630,22 @@ Yes!! This is fundamental!
 
 Will, [25.10.16 13:17]
 We don't know shit.
-
-Will, [25.10.16 13:17]
 We are figuring out where we came from.
-
-Will, [25.10.16 13:17]
 That is the fundamental difference between humans and apes or any other species with a greater survival advantage.
 
 Pella Jiriya, [25.10.16 13:18]
 Now that we can believe to anything, what are the beliefs that make humanity progress forward to greater society? In my opinion we should keep it "real", concentrate ourselves with the common issue our society has rn.
-
 - multiculturalism
 - increased mobility 
 - distribution of wealth 
 - morality 
 - ecc.
 
-Pella Jiriya, [25.10.16 13:19]
-[In reply to Will]
-[ Photo ]
+### Are human specials /end
+####Summary
+(under construction)
 
+### Values
 Will, [25.10.16 13:20]
 Politics is boring once you figure out that you spend money to keep yourself in power and development is slow.
 
@@ -1995,23 +1696,15 @@ And i want coexistence instead of equality/equity which in my opinion is an utop
 
 Will, [25.10.16 13:24]
 Not all are born equal.
-
-Will, [25.10.16 13:25]
 You get the same resources ad everyone else. But you are handed the keys to the staircase.
 
 Pella Jiriya, [25.10.16 13:25]
 But fundamentally we are having the same thought.
-
 The love toward humanity!
 
 Will, [25.10.16 13:25]
 Walking up them is your job.
-
-Will, [25.10.16 13:25]
-[In reply to Pella Jiriya]
 Different fields. But yes. Both equally necessary.
-
-Will, [25.10.16 13:25]
 Politics isn't my cup of tea.
 
 Pella Jiriya, [25.10.16 13:27]
@@ -2027,26 +1720,17 @@ Equality gives to everyone the same support, equity helps people differently to 
 
 Will, [25.10.16 13:29]
 Don't hesitate. It's a genuine question.
-
-Will, [25.10.16 13:30]
-[In reply to Pella Jiriya]
 The same result. Expound on that for me.
 
 Pella Jiriya, [25.10.16 13:32]
 [In reply to Will]
 In that picture the end result is being able to watch the game 
-
 As a help is given a box to every one, regardless of the height of the person.
-
 While equity gives boxes considering the inherent human differences
 
 Will, [25.10.16 13:32]
 Yes. But why the need for the same result for everyone.
-
-Will, [25.10.16 13:33]
 Taking our examples.
-
-Will, [25.10.16 13:33]
 You would go into different field than me.
 
 Pella Jiriya, [25.10.16 13:33]
@@ -2054,37 +1738,17 @@ Questioning ourself about this concepts is for me practically more useful then d
 
 Will, [25.10.16 13:33]
 Providing the same tools. But notable all tools would be more important.
-
-Will, [25.10.16 13:33]
 Resources to differentiate into whatever you want. Instead of a one way path.
-
-Will, [25.10.16 13:34]
-[In reply to Pella Jiriya]
-Ikr. *bro high five*
-
-Pella Jiriya, [25.10.16 13:35]
-[In reply to Will]
-[ ✋ Sticker ]
 
 Will, [25.10.16 13:35]
 So what is your idea and criticism of mine.
 
 Pella Jiriya, [25.10.16 13:36]
 I don't have really an idea
-
-Pella Jiriya, [25.10.16 13:37]
 But I came to the conclusion that the sentence equal opportunity doesn't mean much
-
-Pella Jiriya, [25.10.16 13:37]
 I know what you mean ofc
-
-Pella Jiriya, [25.10.16 13:37]
 You want that people would have the same starting conditions.
-
-Pella Jiriya, [25.10.16 13:38]
 Although in practice, equal opportunity for me is not appliable because we aren't equal.
-
-Pella Jiriya, [25.10.16 13:39]
 But I also don't agree with equity, in a way that would create a differential resource management
 
 Will, [25.10.16 13:39]
@@ -2095,27 +1759,15 @@ So we need to kind of create an ad hoc system
 
 Will, [25.10.16 13:40]
 Equity initially is a bliss but turns into a blunder once people figure out a way for it to work in their advantage.
-
-Will, [25.10.16 13:41]
 Its a divergent path. But the end goal isn't the same for everyone because everyone is specialised to form and contemplate their own niche.
-
-Will, [25.10.16 13:42]
 Don't judge a fish for its ability to climb on a tree.
-
-Pella Jiriya, [25.10.16 13:42]
-[In reply to Will]
-This
 
 Pella Jiriya, [25.10.16 13:43]
 I think we should concentrate more on finding which niece each human fits more than giving everybody equal opportunity.
 
 Will, [25.10.16 13:44]
 Yes. Equal opportunity and resources.
-
-Will, [25.10.16 13:44]
 So you can fund yourself into becoming who you are into. But then again neuroplasticity plays a bigger role in this debate.
-
-Will, [25.10.16 13:44]
 Humans are adaptable.
 
 Pella Jiriya, [25.10.16 13:45]
@@ -2126,11 +1778,7 @@ Well. It does if not referring to the photo
 
 Pella Jiriya, [25.10.16 13:46]
 So you want everybody to technically be able to have the same opportunity.
-
-Pella Jiriya, [25.10.16 13:46]
 So you need to give a bit more to somebody with a disvantage
-
-Pella Jiriya, [25.10.16 13:46]
 While give less to somebody with an advantage
 
 Will, [25.10.16 13:46]
@@ -2142,20 +1790,12 @@ So you'll have equal opportunity, meaning equal potential for achievement
 Will, [25.10.16 13:47]
 Imagine it this way. There is a building for you. In that building there are multiple doors. 
 You are handed the keys to every one of them. And you have the liberty to go to the path that you like.
-
-Will, [25.10.16 13:48]
 But you would be given a test run for what the concepts behind the doors lie. And hence would be more educated to make a more rational judgement
 
 Pella Jiriya, [25.10.16 13:48]
 I have a broken leg.
-
-Pella Jiriya, [25.10.16 13:48]
 Should society provide a help to climb the stairs?
-
-Pella Jiriya, [25.10.16 13:49]
 Or be treated equal and give just the key and go fuck yourself?
-
-Pella Jiriya, [25.10.16 13:50]
 Is it really equal opportunity? If we give the cripple the same help as somebody healthy?
 
 Will, [25.10.16 13:51]
@@ -2172,47 +1812,17 @@ Help me understand better what you're trying to say here.
 
 Stefan, [25.10.16 13:54]
 Countries with higher social mobility are fairer and better
-
-Stefan, [25.10.16 13:55]
 They encourage effort, instead of using ties.
 
 Pella Jiriya, [25.10.16 13:57]
 [In reply to Will]
 Is it still equal opportunity, if you give all the keys to the rooms in the building to a healthy man and a man with a broken leg?  
-
 Wouldn't the healthy man be able to reach for more doors? Wouldn't the cripple be limited? Shall we as society compensate for this disability so that there will be equity?
-
-Stefan, [25.10.16 13:57]
-Bad analogy.
-
-Pella Jiriya, [25.10.16 13:57]
-Uhm?
-
-Pella Jiriya, [25.10.16 13:57]
-Is a continuation of he equal opportunity...
 
 Will, [25.10.16 13:58]
 My proposal was that we help people find their niches.
-
-Pella Jiriya, [25.10.16 13:58]
-[In reply to Will]
-This
-
-Pella Jiriya, [25.10.16 13:58]
-[In reply to Will]
-Here
-
-Will, [25.10.16 13:58]
 On what niche the functioning of the human is maximum an what he should opt for is what the doors represent.
-
-Pella Jiriya, [25.10.16 13:58]
-[In reply to Will]
-This is the analogy I expanded
-
-Will, [25.10.16 13:59]
 You have the ability to differentiate into any door given you like it and practise it enough.
-
-Will, [25.10.16 14:03]
 I hope I did a better job now.
 
 Pella Jiriya, [25.10.16 14:09]
@@ -2221,16 +1831,11 @@ Uhm I dont get it tho
 Will, [25.10.16 16:12]
 Oh okay. It's something like this. 
 Everyone should have the resources necessary to expound on their skillset which they desire.
-
-Will, [25.10.16 16:12]
 And hence would be differentiated and performing well as a member of society.
 
 Leonard Greenpaw, [25.10.16 16:29]
 [In reply to david davidson]
 Sounds simple enough to me :D
-
-Leonard Greenpaw, [25.10.16 16:32]
-[In reply to Will]
 I have made my religion to beat those odds. We shall grow to become masters of time and space, for we are how  the universe comes to know itself.
 
 Milena, [25.10.16 16:33]
@@ -2240,9 +1845,6 @@ https://www.newscientist.com/round-up/reality
 
 *disappears again*
 
-Milena, [25.10.16 16:33]
-[In reply to Leonard Greenpaw]
-🙌
 
 Will, [25.10.16 16:36]
 [In reply to Leonard Greenpaw]
@@ -2256,13 +1858,10 @@ In other words, the average of general perception is /highly likely/ to grow clo
 Leonard Greenpaw, [25.10.16 16:45]
 [In reply to Will]
 Thumbs, adaptability, but also what most people dont recognice, language. I beleive the evolutionary chage of the shifting location of the base of our tongues which enabled us to have a complex developed language which in turned enabled greater connections between people, especially for the purpose of spreading information deserve to be in the top three reasons we managed to somehow survive dispite our otherwise poorly designed bodies
-
 Mind to think of new ideas, tongue to spread new ideas, and thumbs to make those ideas into reality
 
 Will, [25.10.16 16:46]
 We learned to pass down information.
-
-Will, [25.10.16 16:46]
 Unlike our other primate peers
 
 Leonard Greenpaw, [25.10.16 16:46]
@@ -2273,18 +1872,13 @@ Leonard Greenpaw, [25.10.16 16:46]
 [In reply to Will]
 Exactly!
 
-Will, [25.10.16 16:47]
-What does the INT mean in the name of the chat.
+### Values /end
+#### Summary
+(under construction)
 
+### Communism, equality
 Leonard Greenpaw, [25.10.16 16:48]
 This is a connection beyond just our group of currently, it is a connection of our whole history, We right now are the sum of efforts, the sum of knowledge that has been started even far before the time of pythagorous
-
-Leonard Greenpaw, [25.10.16 16:48]
-I like you will, we are on the same page
-
-Leonard Greenpaw, [25.10.16 16:49]
-[In reply to Will]
-I sense a comrade! :D
 
 Leonard Greenpaw, [25.10.16 16:50]
 Down with the inate inequality and power struggle built into the capitalist system!
@@ -2300,22 +1894,9 @@ Welcome the post scarcity economy with the power of automation!
 Leonard Greenpaw, [25.10.16 16:51]
 We have the ability now, more than ever before!
 
-Milena, [25.10.16 16:53]
-[In reply to Leonard Greenpaw]
-💖
-
-Milena, [25.10.16 16:54]
-[In reply to Will]
-It stands for "international"
-
 Leonard Greenpaw, [25.10.16 16:54]
 The dominos of cause and effect are falling, we must push for a higher minimum wage, the proletariate must fight for their rights, this will make the capitalists progress automation because its more cost effective. The capitalists are priming the system of their downfall, but they are too blinded by greed. Please do continue making more people unemployeed. Please to develop more and more automated systems. Oh self check out? Automated cashier at fast food places? self driving vehicles? Yes fire more people. Soon so many people will be poor and unemployeed that revolution will happen and we will take back the means of production!
-
-Leonard Greenpaw, [25.10.16 16:55]
 You are the creators of your own demise!
-
-Leonard Greenpaw, [25.10.16 16:55]
-MWAHAHAHAHAHA
 
 Milena, [25.10.16 16:55]
 [In reply to Leonard Greenpaw]
@@ -2327,13 +1908,7 @@ Cant have a new system while the old one is in place, if capitalists are still i
 
 Leonard Greenpaw, [25.10.16 17:02]
 [In reply to Pella Jiriya]
-some animals
-
-Leonard Greenpaw, [25.10.16 17:02]
-[In reply to Pella Jiriya]
 Ants are such a beautiful display of communism at its best ❤️
-
-Leonard Greenpaw, [25.10.16 17:03]
 Behold the power of communism, when everyone is working together for the greater good, even the lowly ant has magnificent power!
 
 Leonard Greenpaw, [25.10.16 17:05]
@@ -2347,8 +1922,6 @@ Yes and to do so we must complete the connection of ourselves into the great web
 Leonard Greenpaw, [25.10.16 17:10]
 [In reply to Pella Jiriya]
 Not if we kill them all first by ruining the planet :D... wait no, thats a bad thing
-
-Leonard Greenpaw, [25.10.16 17:10]
 I want to teach chimps how to make fire, then release them into nature
 
 Leonard Greenpaw, [25.10.16 17:13]
@@ -2363,9 +1936,7 @@ Correct answeris that we are endurance runners, we can run for a longer time, a 
 Pella Jiriya, [25.10.16 17:25]
 [In reply to Leonard Greenpaw]
 The average is easily influenced, like in the past earth being in the middle of the universe seemed like the best average.
-
 You said something that I like but is fundamentally wrong. Science might be right on many fields, but is not absolute truth. Also science and thereby the scientific method are colored glass that allow us to see reality in a certain perspective.
-
 I think that the scientific method is the best approach as of now of describing a coherent reality but is not the only neither the most correct.
 
 Pella Jiriya, [25.10.16 17:26]
@@ -2427,7 +1998,6 @@ Pella Jiriya, [25.10.16 17:36]
 [In reply to Leonard Greenpaw]
 Incorrect on all counts
 > says all the correct things I said....
-
 Are you trolling?
 
 Leonard Greenpaw, [25.10.16 17:37]
@@ -2437,7 +2007,6 @@ Yes, yes it would, Earth as the collective living organisms is a 'live planet' a
 Pella Jiriya, [25.10.16 17:38]
 [In reply to Leonard Greenpaw]
 Lelz let's take self defined communist or strongly socialist economies and say they are not communist since we need a new definition of communism to make it work.
-
 In reality communism is an utopic concept, albeit promising on paper, it doesn't have any practical reality.
 
 Leonard Greenpaw, [25.10.16 17:39]
@@ -2458,7 +2027,6 @@ in other words no, you dont know what communism is
 Pella Jiriya, [25.10.16 17:42]
 [In reply to Leonard Greenpaw]
 Oh god those are technicalities that aren't inherent to the answer.  I meant endurance, with running fast, I'm sorry.
-
 I meant climbing trees to escape predators, not as a main motile purpose.
 Human have a long live span compared to other animals (rat, dog, cat,...) 
 Even with the very short life span that ranges from 25-50 years in the primitive humans is still longer 😑
@@ -2469,14 +2037,6 @@ Anyone who honestly thinks that any communism system, which prioritizes the well
 Pella Jiriya, [25.10.16 17:43]
 [In reply to Leonard Greenpaw]
 Ok explain your idea to me
-
-Leonard Greenpaw, [25.10.16 17:43]
-[In reply to Pella Jiriya]
-Is english your first language?
-
-Pella Jiriya, [25.10.16 17:43]
-[In reply to Leonard Greenpaw]
-Nope
 
 Will, [25.10.16 17:43]
 What and why are we debating about.
@@ -2495,12 +2055,7 @@ I have a lovely chart that shows capitalism, socialism, and communism side by si
 Pella Jiriya, [25.10.16 17:46]
 [In reply to Leonard Greenpaw]
 The guy said that is only our mind that gave us success. I gave physical features of human that contributed to our success.
-
 You can debate how many semantics you want... but I gave the guy an answer and you just confirmed it.
-
-Pella Jiriya, [25.10.16 17:46]
-[In reply to Leonard Greenpaw]
-Oook
 
 Will, [25.10.16 17:47]
 This conversation evolved into something of less practicality than information exchange.
@@ -2512,15 +2067,9 @@ Information is basic for developing concepts
 Will, [25.10.16 17:48]
 We aren't discarding wrongly held notions.
 
-Leonard Greenpaw, [25.10.16 17:49]
-[ Photo ]
-Ah it was in downloads, not in telegram's folder
-
 Pella Jiriya, [25.10.16 17:50]
 I don't agree in the human race being special in contrast to the other animals because we also follow many of the science designed rules.
-
 Moreover I think that humans are different so an equality is difficult to reach. Giving everybody the same would put people with a disadvantage in second place (if is right this goes toward social darwinism). I don't find either equity a good solutions since I'm convinced that not everybody can reach the same goal.
-
 A tailored solution has to be found like you, Will, said that we need to find individual niches.
 
 Pella Jiriya, [25.10.16 17:51]
@@ -2529,34 +2078,16 @@ Can you send it as a file?
 
 Leonard Greenpaw, [25.10.16 17:51]
 Eh some communism says everyone is the same, other communism says everyone is BORN the same, as in a blank slate
-
-Leonard Greenpaw, [25.10.16 17:52]
-[ File : photo_2016-06-18_13-10-41.jpg ]
-
-Leonard Greenpaw, [25.10.16 17:52]
-[In reply to Pella Jiriya]
-Communism wouls also say, you arent by default better than others just because you are rich
-
-Leonard Greenpaw, [25.10.16 17:53]
+Communism would also say, you arent by default better than others just because you are rich
 While other communists would say noone is better than anyone else, but everyone has  specialties, so they are not all the same, but are still equal in value
-
-Pella Jiriya, [25.10.16 17:54]
-[In reply to Leonard Greenpaw]
-[ Photo ]
 
 Leonard Greenpaw, [25.10.16 17:55]
 And others will say that all people have a minimum innate value, as in like all people are born with a right to live a peaceful life
 
-Leonard Greenpaw, [25.10.16 17:55]
-[In reply to Pella Jiriya]
-...... I dont even understand that joke
-
 Pella Jiriya, [25.10.16 17:56]
 [In reply to Leonard Greenpaw]
 Does he have an equal potential to the rest of humanity?  
-
 Is he born the same as others?
-
 What are he's specialities? Is his value equal to other humans?
 
 Leonard Greenpaw, [25.10.16 17:57]
@@ -2592,15 +2123,10 @@ It's a fundamental discussion about equality.
 
 Will, [25.10.16 18:01]
 I was referring to the debate about what's human's value
-
-Will, [25.10.16 18:01]
-[In reply to Pella Jiriya]
 Which is subjective.
 
 Pella Jiriya, [25.10.16 18:01]
 I don't think humans are all the same and have all the same potentiality and opportunities!
-
-Pella Jiriya, [25.10.16 18:02]
 This makes communism utopic
 
 💫, [25.10.16 18:02]
@@ -2615,10 +2141,6 @@ This is right tho, your welfare doesn't make you better than any other, although
 Pella Jiriya, [25.10.16 18:03]
 [In reply to 💫]
 How can you ignore biological inequalities when they determine the social status?
-
-Pella Jiriya, [25.10.16 18:04]
-[In reply to Pella Jiriya]
-[ 😧 Sticker ]
 
 Leonard Greenpaw, [25.10.16 18:04]
 [In reply to Pella Jiriya]
@@ -2637,17 +2159,12 @@ Gates, yes, that other guy not as much as you might think
 
 Pella Jiriya, [25.10.16 18:06]
 Also actors and movie directors, singers, and so on contribute culturally to the society.
-
 Do I like that Lindsey Lohan or Snooki have become rich? Nope but they had also a cultural contribution to society. Way more than me tbh
 
 Pella Jiriya, [25.10.16 18:06]
 [In reply to Leonard Greenpaw]
 Is the cell phone you're using, square with a multi touch function?
-
-Pella Jiriya, [25.10.16 18:07]
-*rectangular
-
-Pella Jiriya, [25.10.16 18:07]
+* rectangular
 If we want to get lost in semantics
 
 Leonard Greenpaw, [25.10.16 18:09]
@@ -2656,8 +2173,6 @@ Oh because rectangular device shape is such a breakthrough in technology?
 
 Will, [25.10.16 18:10]
 Yes .
-
-Will, [25.10.16 18:10]
 Touchscreen especially.
 
 Leonard Greenpaw, [25.10.16 18:10]
@@ -2727,295 +2242,6 @@ But you do you.
 Will, [25.10.16 18:33]
 So take your time.
 
-Pella Jiriya, [25.10.16 17:33]
-[In reply to Leonard Greenpaw]
-I've seen the application of communism and I'm really not impressed, from the Stalin Russia, mao china, north Korea,  China right now, the commune in Israel (kibbuz)...
-I don't really associate any of these with a real progress toward a modern, liberal society.
-
-Leonard Greenpaw, [25.10.16 17:33]
-cooperative goals, specialized indiiduals, division of labor
-
-Will, [25.10.16 17:34]
-Corrupted.
-
-Will, [25.10.16 17:34]
-Communism is to be implemented someplace better and islotaed
-
-Pella Jiriya, [25.10.16 17:35]
-[In reply to Leonard Greenpaw]
-Uhm... do you really think that the earth, the happy blue rock flying in the eclectic orbit would give a shit about a couple of million of species dying?
-
-Leonard Greenpaw, [25.10.16 17:35]
-[In reply to Pella Jiriya]
--yawn- Want to try naming a country that was actually communist?
-Bett yet, try defining communism, it seems like you dont know what the word means. 
-Meanwhile china russia and NK all have said they are nowhere near reaching communism even at their height
-
-Pella Jiriya, [25.10.16 17:36]
-[In reply to Leonard Greenpaw]
-Incorrect on all counts
-> says all the correct things I said....
-
-Are you trolling?
-
-Leonard Greenpaw, [25.10.16 17:37]
-[In reply to Pella Jiriya]
-Yes, yes it would, Earth as the collective living organisms is a 'live planet' as opposed to a dead planet devoid of life. Refering to its physical form as being its entirety is like saying if your body would care if I stab you in the brain, Most of your physical form will be pretty much fine, it just will cease living
-
-Pella Jiriya, [25.10.16 17:38]
-[In reply to Leonard Greenpaw]
-Lelz let's take self defined communist or strongly socialist economies and say they are not communist since we need a new definition of communism to make it work.
-
-In reality communism is an utopic concept, albeit promising on paper, it doesn't have any practical reality.
-
-Leonard Greenpaw, [25.10.16 17:39]
-[In reply to Pella Jiriya]
-You think endurance runnuing is the same as running fast?
-you think not being able to climb trees as the same as being able to climb trees?
-You think having a modified long lifespan is the same as having a naturally long lifespan?
-Its like you didnt even read
-
-Pella Jiriya, [25.10.16 17:39]
-[In reply to Leonard Greenpaw]
-There's been 5 mass estinction in the life of earth, the Cambrian one killed 200 million species... life itself survived and a while later had even bigger diversity than at the Cambrian...
-
-Leonard Greenpaw, [25.10.16 17:39]
-[In reply to Pella Jiriya]
-in other words no, you dont know what communism is
-
-Pella Jiriya, [25.10.16 17:42]
-[In reply to Leonard Greenpaw]
-Oh god those are technicalities that aren't inherent to the answer.  I meant endurance, with running fast, I'm sorry.
-
-I meant climbing trees to escape predators, not as a main motile purpose.
-Human have a long live span compared to other animals (rat, dog, cat,...) 
-Even with the very short life span that ranges from 25-50 years in the primitive humans is still longer 😑
-
-Leonard Greenpaw, [25.10.16 17:42]
-Anyone who honestly thinks that any communism system, which prioritizes the well being of the working class would support the working class being in slavery while the ruling elites get fat in palaces, is frankly someone I do not wish to waste my time arguing with
-
-Pella Jiriya, [25.10.16 17:43]
-[In reply to Leonard Greenpaw]
-Ok explain your idea to me
-
-Leonard Greenpaw, [25.10.16 17:43]
-[In reply to Pella Jiriya]
-Is english your first language?
-
-Pella Jiriya, [25.10.16 17:43]
-[In reply to Leonard Greenpaw]
-Nope
-
-Will, [25.10.16 17:43]
-What and why are we debating about.
-
-Leonard Greenpaw, [25.10.16 17:44]
-[In reply to Pella Jiriya]
-Oh ok, then I will excuse your mispeaking. Running fast and running far means very different things
-
-Pella Jiriya, [25.10.16 17:44]
-[In reply to Leonard Greenpaw]
-I don't think that a communism ideal of sharing resources and obliterating the notion of private propriety has any practical use in modern times. Unless you want to kill all the people that think and feel that capitalism is the way to go.
-
-Leonard Greenpaw, [25.10.16 17:45]
-I have a lovely chart that shows capitalism, socialism, and communism side by side, give me a moment to find it
-
-Pella Jiriya, [25.10.16 17:46]
-[In reply to Leonard Greenpaw]
-The guy said that is only our mind that gave us success. I gave physical features of human that contributed to our success.
-
-You can debate how many semantics you want... but I gave the guy an answer and you just confirmed it.
-
-Pella Jiriya, [25.10.16 17:46]
-[In reply to Leonard Greenpaw]
-Oook
-
-Will, [25.10.16 17:47]
-This conversation evolved into something of less practicality than information exchange.
-
-Pella Jiriya, [25.10.16 17:47]
-[In reply to Will]
-Information is basic for developing concepts
-
-Will, [25.10.16 17:48]
-We aren't discarding wrongly held notions.
-
-Leonard Greenpaw, [25.10.16 17:49]
-[ Photo ]
-Ah it was in downloads, not in telegram's folder
-
-Pella Jiriya, [25.10.16 17:50]
-I don't agree in the human race being special in contrast to the other animals because we also follow many of the science designed rules.
-
-Moreover I think that humans are different so an equality is difficult to reach. Giving everybody the same would put people with a disadvantage in second place (if is right this goes toward social darwinism). I don't find either equity a good solutions since I'm convinced that not everybody can reach the same goal.
-
-A tailored solution has to be found like you, Will, said that we need to find individual niches.
-
-Pella Jiriya, [25.10.16 17:51]
-[In reply to Leonard Greenpaw]
-Can you send it as a file?
-
-Leonard Greenpaw, [25.10.16 17:51]
-Eh some communism says everyone is the same, other communism says everyone is BORN the same, as in a blank slate
-
-Leonard Greenpaw, [25.10.16 17:52]
-[ File : photo_2016-06-18_13-10-41.jpg ]
-
-Leonard Greenpaw, [25.10.16 17:52]
-[In reply to Pella Jiriya]
-Communism wouls also say, you arent by default better than others just because you are rich
-
-Leonard Greenpaw, [25.10.16 17:53]
-While other communists would say noone is better than anyone else, but everyone has  specialties, so they are not all the same, but are still equal in value
-
-Pella Jiriya, [25.10.16 17:54]
-[In reply to Leonard Greenpaw]
-[ Photo ]
-
-Leonard Greenpaw, [25.10.16 17:55]
-And others will say that all people have a minimum innate value, as in like all people are born with a right to live a peaceful life
-
-Leonard Greenpaw, [25.10.16 17:55]
-[In reply to Pella Jiriya]
-...... I dont even understand that joke
-
-Pella Jiriya, [25.10.16 17:56]
-[In reply to Leonard Greenpaw]
-Does he have an equal potential to the rest of humanity?  
-
-Is he born the same as others?
-
-What are he's specialities? Is his value equal to other humans?
-
-Leonard Greenpaw, [25.10.16 17:57]
-[In reply to Pella Jiriya]
-are you saying because he is chinese or because that image makes him appear potentially mentally disabled?
-
-Pella Jiriya, [25.10.16 17:58]
-The fact he's down...
-
-Leonard Greenpaw, [25.10.16 17:59]
-he is down?
-
-Will, [25.10.16 17:59]
-It's just an opinion game now. 
-You think someone he thinks something else.
-
-Leonard Greenpaw, [25.10.16 18:00]
-[In reply to Will]
-I was stating the opinions common to communists, not neccissarily my own
-
-Pella Jiriya, [25.10.16 18:00]
-[In reply to Leonard Greenpaw]
-Can't be 100% sure but the facial features do point toward dawnism.
-I don't care if the guy in the picture is or not, I care about mentally challenged people. Are they equal to the other humans?
-
-Will, [25.10.16 18:01]
-[In reply to Leonard Greenpaw]
-Late message.
-
-Pella Jiriya, [25.10.16 18:01]
-[In reply to Will]
-It's a fundamental discussion about equality.
-
-Will, [25.10.16 18:01]
-I was referring to the debate about what's human's value
-
-Will, [25.10.16 18:01]
-[In reply to Pella Jiriya]
-Which is subjective.
-
-Pella Jiriya, [25.10.16 18:01]
-I don't think humans are all the same and have all the same potentiality and opportunities!
-
-Pella Jiriya, [25.10.16 18:02]
-This makes communism utopic
-
-💫, [25.10.16 18:02]
-[In reply to Pella Jiriya]
-There's a difference between social equality and biological equality, though. 
-If we're striving to acquire social equality, we should ignore the biological "inequalities" that we have.
-
-Pella Jiriya, [25.10.16 18:03]
-[In reply to Leonard Greenpaw]
-This is right tho, your welfare doesn't make you better than any other, although gives you more possibilities! And sometimes in capitalistic society the fact that one is rich correspond also to the contribution to the society
-
-Pella Jiriya, [25.10.16 18:03]
-[In reply to 💫]
-How can you ignore biological inequalities when they determine the social status?
-
-Pella Jiriya, [25.10.16 18:04]
-[In reply to Pella Jiriya]
-[ 😧 Sticker ]
-
-Leonard Greenpaw, [25.10.16 18:04]
-[In reply to Pella Jiriya]
-contribution to society? Haha no
-
-💫, [25.10.16 18:04]
-Feminism. It's when you ignore biological inequalities.
-
-Pella Jiriya, [25.10.16 18:04]
-[In reply to Leonard Greenpaw]
-Bill Gates and Steve Jobs contributed a lot to society and they have become rich.
-
-Leonard Greenpaw, [25.10.16 18:06]
-[In reply to Pella Jiriya]
-Gates, yes, that other guy not as much as you might think
-
-Pella Jiriya, [25.10.16 18:06]
-Also actors and movie directors, singers, and so on contribute culturally to the society.
-
-Do I like that Lindsey Lohan or Snooki have become rich? Nope but they had also a cultural contribution to society. Way more than me tbh
-
-Pella Jiriya, [25.10.16 18:06]
-[In reply to Leonard Greenpaw]
-Is the cell phone you're using, square with a multi touch function?
-
-Pella Jiriya, [25.10.16 18:07]
-*rectangular
-
-Pella Jiriya, [25.10.16 18:07]
-If we want to get lost in semantics
-
-Leonard Greenpaw, [25.10.16 18:09]
-[In reply to Pella Jiriya]
-Oh because rectangular device shape is such a breakthrough in technology?
-
-Will, [25.10.16 18:10]
-Yes .
-
-Will, [25.10.16 18:10]
-Touchscreen especially.
-
-Leonard Greenpaw, [25.10.16 18:10]
-Apple didn't invent touchscreen
-
-Will, [25.10.16 18:10]
-They didn't.
-
-Leonard Greenpaw, [25.10.16 18:10]
-And they didn't invent rectangles
-
-Will, [25.10.16 18:11]
-Rectangle touchscreen display with user friendly interface.
-
-Leonard Greenpaw, [25.10.16 18:13]
-Which part of that was them? They didn't invent rectangular devices or touch screens or revolutionize ui. And they weren't even the first people to have smart phones
-
-Leonard Greenpaw, [25.10.16 18:15]
-Plus jobs himself didn't even do that, the people that worked for him did. Sure you can try to say he enabled it, but enabling something isn't equal to being a genius inventor
-
-Will, [25.10.16 18:19]
-Don't know. Too much controversies. Too many sides to a story to make a solid judgement.
-
-Leonard Greenpaw, [25.10.16 18:20]
-My main point is that I want to see how many other people can do the same things with similar opprtunity
-
-Will, [25.10.16 18:20]
-[In reply to Leonard Greenpaw]
-There you go.
-
 Leonard Greenpaw, [25.10.16 18:21]
 If they did something obvious or something that is the natural progression of technology or if they did something that most people would do when given the same position, well then they arent some genius in my eyes
 
@@ -3055,6 +2281,9 @@ But you do you.
 Will, [25.10.16 18:33]
 So take your time.
 
+### Communism, equality /end
+#### Summary
+(under construction)
 
 
 
