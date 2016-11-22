@@ -24,3 +24,7 @@ One last thing, being gay will always be controversial in a population, since wi
 ##Practical considerations
 Is homosexuality harming today society? Is homosexual propaganda harming more? Should the society control sexual behavior of its members?
 If yes how?
+
+##Sigmund Freud's basic theory of human sexuality 
+Sigmund Freud's basic theory of human sexuality was different from that of Ellis. He believed all human beings were innately bisexual, and that they become heterosexual or homosexual as a result of their experiences with parents and others (Freud, 1905). Nevertheless, Freud agreed with Ellis that a homosexual orientation should not be viewed as a form of pathology. In a now-famous letter to an American mother in 1935, Freud wrote:
+"Homosexuality is assuredly no advantage, but it is nothing to be ashamed of, no vice, no degradation, it cannot be classified as an illness; we consider it to be a variation of the sexual function produced by a certain arrest of sexual development. Many highly respectable individuals of ancient and modern times have been homosexuals, several of the greatest men among them (Plato, Michelangelo, Leonardo da Vinci, etc.). It is a great injustice to persecute homosexuality as a crime, and cruelty too...."
