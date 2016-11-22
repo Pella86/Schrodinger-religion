@@ -19,7 +19,7 @@ There are gay reformatories, where people try to impose the heterosexuality. I h
 but I would say is very low.
 
 ##Minoritarian behavior
-One last thing, being gay will always be controversial in a population and itwill always be considered an alternative behavior of the standard heterosexuality.
+One last thing, being gay will always be controversial in a population and it will always be considered an alternative behavior of the standard heterosexuality.
 
 ##Practical considerations
 Is homosexuality harmful to today's society? Is homosexual propaganda more harmful? Should the society control sexual behavior of its members? 
