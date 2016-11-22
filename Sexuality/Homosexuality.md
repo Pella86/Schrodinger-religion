@@ -13,7 +13,7 @@ Lions use it for dominance assessing (same as the Roman empire), penguins being 
 engage homosexual behavior their entire life. 
 
 ##Personal choice or predisposition
-Homosexuality isn't a choice, like it isn't a choice to be hetero. The sexual attraction, although it can be guided, it cannot be completely replaced. I would consider it a predisposition. 
+Homosexuality isn't a choice, like it isn't a choice to be hetero. The sexual attraction, although it can be guided, it cannot be completely replaced. I would call it a predisposition. 
 Sexual orientation and sexual preference come both from our conscious and subconscious thoughts. 
 There are gay reformatories, where people try to impose the heterosexuality. I have no idea about the success rate, 
 but I would say is very low.
