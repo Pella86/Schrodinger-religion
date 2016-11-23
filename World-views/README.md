@@ -1,3 +1,3 @@
 # World views
 
-Here it goes to describe the world the human percieve around himself.
+Here we describe the world and how the human percieve it around himself.

@@ -1,5 +1,5 @@
 # The religion
-This file will contain the body of the religion itself. How it should be construtcted or how should be conceived.
+This file will contain the body of the religion itself. How it should be constructed or how should be conceived.
 
 ## What is a religion?
 > "Religion is a cultural system of behaviors and practices, world views, sacred texts, holy places, ethics, and societal organization, 
