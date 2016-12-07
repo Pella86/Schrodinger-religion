@@ -10,3 +10,5 @@ The recent problems caused by extremists of various religions made me think that
 We need as humanity a new way to see the world. (Spitz Park, 8.6.2016)
 
 The start, here I begin, here I decided to throw the basis of a **plastic and dynamic** religion.
+
+I like ananas
