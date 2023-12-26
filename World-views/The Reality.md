@@ -10,3 +10,6 @@ For now I'll take the Yoism view of reality which is in accordance with Bohr's q
 ## Niels Bohr vs Einstein Debate
 Is reality what we perceive or does a fundamental true reality exist?
 > this is a very short and unprecise summary I'll come later to the detail
+>
+> ## Secondo giò
+> essere corretto, reale con tutti, essere se stesso
